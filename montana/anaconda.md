@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Industrial Folk
-**Mood:** Tough, Nostalgic, Enduring
-**Suno Tags:** [Style of Music: industrial folk with gritty vocals, acoustic guitar, harmonica, and steady drums]
+**Genre:** Blues Rock
+**Mood:** Gritty, Nostalgic, Resilient
+**Suno Tags:** [Style of Music: blues rock, smoky guitar, gritty soul, mining-town resilience, powerful vocals]
 
 [Intro tag]
-Anaconda, Montana — the smelter city that forged the Richest Hill's copper into history...
+Anaconda—born from copper, shaped by fire, alive with heart!
 
 [Verse 1]
-At the foot of the Anaconda Range where the smokestacks used to rise,
-The Washoe Smelter belched fire into Montana skies,
-Marcus Daly built an empire from the copper in the ground,
-And Anaconda's smelter town became world-renowned.
+The Anaconda Smelter Stack rising from the ground,
+Copper Queen of Montana, legendary and profound.
+Warm Springs State Hospital where the healing waters flow,
+Anaconda Smoke Stack—tallest in the world, you know.
 
 [Pre-Chorus]
-Copper smelted, mountains shaped,
-From an industrial dream we were made,
-Anaconda — hard as the metal flowing through our veins!
+From the smelter fires to the Deer Lodge Valley floor,
+Anaconda, Montana—we want more!
 
 [Chorus]
-Anaconda! Where the giant smokestack touched the sky,
-Anaconda! The Berkeley Pit's neighbor, watching history go by,
-From Washoe Park to theAnaconda Smoke Stack State Park's glow,
-Anaconda, Montana — our copper roots still show!
+Anaconda, Anaconda, copper in our veins,
+Smelter Stack standing proud through sun and rain.
+Mining town with a heart that never quits,
+Anaconda, Montana—we're the real deal, that's it!
 
 [Verse 2]
-The Old Works Golf Course sits on smelter grounds with grace,
-The Hearst Free Library keeps the knowledge in this place,
-The Anaconda-Deer Lodge County Fair brings summer cheer,
-And the Anaconda Range reminds us why we're here.
+Old Works Golf Course on the smelter grounds,
+Historic downtown where the heritage resounds.
+Washoe Theatre Art Deco shining silver bright,
+Bear Paw Saloon keeping western spirits light.
 
 [Pre-Chorus]
-Copper smelted, mountains shaped,
-From an industrial dream we were made,
-Anaconda — hard as the metal flowing through our veins!
+From the smelter fires to the Deer Lodge Valley floor,
+Anaconda, Montana—we want more!
 
 [Chorus]
-Anaconda! Where the giant smokestack touched the sky,
-Anaconda! The Berkeley Pit's neighbor, watching history go by,
-From Washoe Park to theAnaconda Smoke Stack State Park's glow,
-Anaconda, Montana — our copper roots still show!
+Anaconda, Anaconda, copper in our veins,
+Smelter Stack standing proud through sun and rain.
+Mining town with a heart that never quits,
+Anaconda, Montana—we're the real deal, that's it!
 
 [Bridge]
-World's tallest freestanding brick structure in our backyard,
-From mining town to Superfund — life has been hard,
-But we endure like copper — strong and never gone,
-Anaconda — the smelter city carries on!
+Marcus Daly's vision built this town from stone,
+The greatest smelter ever, now it stands alone.
+Anaconda's grit runs deeper than the mine,
+Copper-hearted people every single time!
 
 [Final Chorus]
-Anaconda! Where the giant smokestack touched the sky,
-Anaconda! With the Pintler Range standing guard on high,
-From Daly's legacy to the present day,
-Anaconda, Montana — we'll never fade away!
+Anaconda, Anaconda, copper in our veins,
+Smelter Stack standing proud through sun and rain.
+Deer Lodge Valley's jewel beneath the western sky,
+Anaconda, Montana—we'll never die!
 
 [Outro]
-Smelter city proud — Anaconda, Montana, forged in fire!
+Copper and fire, heart and soul,
+Anaconda forever—we're whole.
 
 ---
 

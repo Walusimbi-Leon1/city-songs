@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Western Swing
-**Mood:** Friendly, Nostalgic, Rooted
-**Suno Tags:** [Style of Music: western swing with twangy guitar, steel guitar, fiddle, and upbeat rhythm]
+**Genre:** Country Western
+**Mood:** Frontier-spirited, Tough, Proud
+**Suno Tags:** [Style of Music: country western, twangy guitar, frontier spirit, underground history, proud vocals]
 
 [Intro tag]
-Havre, Montana — the Hi-Line's heartbeat, where the Great Northern Railroad made its home...
+Havre—where the Hi-Line meets the heart of the frontier!
 
 [Verse 1]
-On the Hi-Line where the prairie stretches endlessly,
-Havre, Montana — railroad town of history,
-The Great Northern Railway brought the settlers and the trade,
-And Bear Paw Mountains watch over this frontier blade.
+Havre Beneath the Streets hiding prohibition tales,
+Fort Assiniboine standing where the cavalry exhales.
+Hauling grain from the golden prairie wide,
+Bear Paw Mountains watching from the countryside.
 
 [Pre-Chorus]
-Havre Beneath the Streets tells tales below,
-Of fire and rebuilding from long ago,
-Havre — the Hi-Line capital standing proud and true!
+On the Hi-Line, Haven of the Hi-Line strong and true,
+Havre, Montana—we carry it through!
 
 [Chorus]
-Havre! Where the Bear Paws touch the prairie sky,
-Havre! From Northern Montana College days to the Wild Horse Stampede high,
-The Wahkpa Chu'agan archaeological site goes back a thousand years,
-Havre, Montana — built on heritage and frontier tears!
+Havre, Havre, pride of the Hi-Line,
+Frontier roots in every grain and vine.
+From the underground to the open sky,
+Havre, Montana—we'll never say goodbye!
 
 [Verse 2]
-The Hill County Courthouse stands majestic in the sun,
-The Bear Paw Battlefield remembers what was done,
-From the Pepin Park summer concerts to the winter's northern lights,
-Havre keeps its spirit burning through the longest winter nights.
+Historic buildings standing proud and tall,
+Chinatown stories echoing the call.
+Milk River winding gently through the town,
+Pepin Stadium thundering with Friday night renown.
 
 [Pre-Chorus]
-Havre Beneath the Streets tells tales below,
-Of fire and rebuilding from long ago,
-Havre — the Hi-Line capital standing proud and true!
+On the Hi-Line, Haven of the Hi-Line strong and true,
+Havre, Montana—we carry it through!
 
 [Chorus]
-Havre! Where the Bear Paws touch the prairie sky,
-Havre! From Northern Montana College days to the Wild Horse Stampede high,
-The Wahkpa Chu'agan archaeological site goes back a thousand years,
-Havre, Montana — built on heritage and frontier tears!
+Havre, Havre, pride of the Hi-Line,
+Frontier roots in every grain and vine.
+From the underground to the open sky,
+Havre, Montana—we'll never say goodbye!
 
 [Bridge]
-Hi-Line hub between the Canadian border and the mountains far,
-Milking station, trading post, railroad and star,
-Havre Beneath the Streets — a secret underground,
-Hi-Line capital — the most honest town around!
+Fort Assiniboine, largest fort in the west,
+Havre Beneath—the underground's best!
+Hi-Line resilience forged in prairie wind,
+Havre, Montana—we're toughened and skinned!
 
 [Final Chorus]
-Havre! Where the Bear Paws touch the prairie sky,
-Havre! From the Chinook arch winds to the Missouri rolling by,
-Hill County pride runs through our veins and hearts,
-Havre, Montana — where the Hi-Line story starts!
+Havre, Havre, pride of the Hi-Line,
+Frontier roots in every grain and vine.
+Grain elevators standing tall and high,
+Havre, Montana—we'll reach the sky!
 
 [Outro]
-Hi-Line heartbeat — Havre, Montana, always running strong!
+Hi-Line strong, frontier soul,
+Havre forever—we're whole.
 
 ---
 

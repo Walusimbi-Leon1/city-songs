@@ -1,63 +1,62 @@
 # Helena, Montana
-*A song celebrating the spirit of Helena Last Chance Gulch*
+*A song celebrating the spirit of Helena*
 
 ---
 
-**Genre:** Americana
-**Mood:** Dignified, Patriotic, Stately
-**Suno Tags:** [Style of Music: Americana with warm vocals, acoustic guitar, pedal steel, and upright bass]
+**Genre:** Folk Rock
+**Mood:** Stately, Patriotic, Resilient
+**Suno Tags:** [Style of Music: folk rock, patriotic pride, steady drums, organ tones, capital-city grandeur, resilient vocals]
 
 [Intro tag]
-Helena, Montana — the Queen City of the Rockies, where the capital stands tall...
+Helena—capital of the Treasure State, built on gold and governed by grit!
 
 [Verse 1]
-In Last Chance Gulch where the gold was first found,
-A miner's dream became Montana's capital town,
-The Cathedral of St. Helena rises toward the blue,
-And the Mansion on the Hill reminds us what we're due.
+Last Chance Gulch where prospectors struck it rich,
+Cathedral of Saint Helena on the western ridge.
+State Capitol dome gleaming silver in the sun,
+Gates of the Mountains where the Missouri runs.
 
 [Pre-Chorus]
-Seat of government, heart of the state,
-Montana's pride — Helena is great,
-The Queen City of the Rockies wears her crown with grace!
+From mining camp to capital, we've come a long, long way,
+Helena, Montana—we lead the way!
 
 [Chorus]
-Helena! Where history and governance entwine,
-Helena! From the Original Governor's Mansion to the Great Northern's line,
-Reeder's Alley whispers tales of days gone by,
-Helena, Montana — under the Big Sky!
+Helena, Helena, capital of gold,
+Treasure State's heartbeat and a story to be told.
+History and governance under one big sky,
+Helena, Montana—we'll always fly!
 
 [Verse 2]
-The Montana Historical Society holds our story tight,
-The Archie Bray Foundation fires up the clay with light,
-From Spring Meadow Lake to Mount Helena's winding trail,
-Every step in this Queen City never fails.
+Helena Carousel spinning dreams for all,
+Prickly Pear Valley answering the call.
+Original Governor's Mansion on Ewing Street,
+Vigilantes' legacy in every heartbeat.
 
 [Pre-Chorus]
-Seat of government, heart of the state,
-Montana's pride — Helena is great,
-The Queen City of the Rockies wears her crown with grace!
+From mining camp to capital, we've come a long, long way,
+Helena, Montana—we lead the way!
 
 [Chorus]
-Helena! Where history and governance entwine,
-Helena! From the Original Governor's Mansion to the Great Northern's line,
-Reeder's Alley whispers tales of days gone by,
-Helena, Montana — under the Big Sky!
+Helena, Helena, capital of gold,
+Treasure State's heartbeat and a story to be told.
+History and governance under one big sky,
+Helena, Montana—we'll always fly!
 
 [Bridge]
-Capital city, but we never got too big to care,
-From the gold rush to the legislature's chair,
-We govern with a Montana heart and a frontier soul,
-Helena — the Queen City makes us whole!
+Gulch to government, the journey forged in stone,
+Helena carries courage she has always known.
+Seven Sisters Mountains keeping watch so tall,
+Capital of Montana—strongest of them all!
 
 [Final Chorus]
-Helena! Where history and governance entwine,
-Helena! From the Carroll College campus to the Gulch's pine,
-Last Chance Gulch — but we never needed another chance,
-Helena, Montana — capital pride, capital dance!
+Helena, Helena, capital of gold,
+Treasure State's heartbeat and a story to be told.
+From Last Chance Gulch to the Capitol dome,
+Helena, Montana—this is home!
 
 [Outro]
-Queen City of the Rockies — Helena, Montana, reigning supreme!
+Gold in the ground and gold in our soul,
+Helena forever—we're whole.
 
 ---
 

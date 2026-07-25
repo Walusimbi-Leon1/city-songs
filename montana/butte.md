@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Celtic Punk Rock
-**Mood:** Defiant, Proud, Resilient
-**Suno Tags:** [Style of Music: Celtic punk rock with bagpipes, electric guitar, driving drums, and rowdy vocals]
+**Genre:** Classic Rock
+**Mood:** Gritty, Proud, Resilient
+**Suno Tags:** [Style of Music: classic rock, gritty vocals, electric guitar riffs, mining-town pride, resilient energy]
 
 [Intro tag]
-Butte, Montana — the Richest Hill on Earth, where copper built a nation...
+Butte, America—richest hill on Earth, and the toughest town alive!
 
 [Verse 1]
-Beneath the headframe shadows of the Minn and the Kelley,
-The hardest-working miners dug a city out of belly,
-Copper kings and immigrants on the streets of Mercury Row,
-Butte, Montana — we built this town from below.
+The Berkeley Pit standing where the copper mountains stood,
+Miners dug for glory in the neighborhood.
+Our Lady of the Rockies watching from the height,
+Copper King Mansion shining in the light.
 
 [Pre-Chorus]
-They tried to flood us, tried to break our hill,
-But Butte don't quit, and Butte never will,
-The Richest Hill on Earth — our story's written in the stone!
+From the headframes on the hilltop to the Studebaker row,
+Butte, Montana—we put on a show!
 
 [Chorus]
-Butte! Mining city, hard as copper wire,
-Butte! From the Berkeley Pit to the World Museum of Mining's fire,
-St. Patrick's Day parade runs down Park Street every year,
-Butte, Montana — the toughest city far and near!
+Butte, America, digging deep for gold,
+Richest hill on Earth and a spirit never sold.
+Headframes standing tall like fingers in the sky,
+Butte, Montana—we'll never die!
 
 [Verse 2]
-The Dumas Brothel tells the wild and woolly tales,
-Copper King Mansion echoes through the ancient trails,
-Mai Wah Museum honors Chinatown's long-ago,
-Butte, Montana — every story is a show.
+World Museum of Mining telling tales so grand,
+Continental Divide running right through town.
+Granite Mountain Memorial keeping memories near,
+Butte's resilience conquering every fear.
 
 [Pre-Chorus]
-They tried to flood us, tried to break our hill,
-But Butte don't quit, and Butte never will,
-The Richest Hill on Earth — our story's written in the stone!
+From the headframes on the hilltop to the Studebaker row,
+Butte, Montana—we put on a show!
 
 [Chorus]
-Butte! Mining city, hard as copper wire,
-Butte! From the Berkeley Pit to the World Museum of Mining's fire,
-St. Patrick's Day parade runs down Park Street every year,
-Butte, Montana — the toughest city far and near!
+Butte, America, digging deep for gold,
+Richest hill on Earth and a spirit never sold.
+Headframes standing tall like fingers in the sky,
+Butte, Montana—we'll never die!
 
 [Bridge]
-Irish and Finns and Cornish, Chinese and Italians too,
-Every culture came together for the copper that we hew,
-Superfund site to Superfund pride — we own every scar,
-Butte, Montana — under any sky, any star!
+Ethnic festivals from every corner of the world,
+Celtic and Slavic flags forever unfurled.
+Working-class roots run deeper than the mines,
+Butte stands together through the hardest times!
 
 [Final Chorus]
-Butte! Mining city, hard as copper wire,
-Butte! From the headframes on the hill to the Hibernia's choir,
-Our Lady of the Rockies watches from above,
-Butte, Montana — built on toughness, forged in love!
+Butte, America, digging deep for gold,
+Richest hill on Earth and a spirit never sold.
+Headframes lit against the Montana night,
+Butte, Montana—we'll fight the fight!
 
 [Outro]
-Richest Hill on Earth — Butte, Montana, forever mining pride!
+Copper hearts and miner soul,
+Butte forever—we're whole.
 
 ---
 

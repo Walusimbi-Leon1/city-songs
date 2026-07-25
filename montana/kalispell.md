@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Country Folk
-**Mood:** Warm, Adventurous, Welcoming
-**Suno Tags:** [Style of Music: country folk with warm vocals, acoustic guitar, mandolin, and fiddle]
+**Genre:** Country Pop
+**Mood:** Warm, Welcoming, Scenic
+**Suno Tags:** [Style of Music: country pop, bright guitars, warm harmonies, welcoming spirit, small-city pride]
 
 [Intro tag]
-Kalispell, Montana — gateway to Glacier Country, where the mountains call your name...
+Kalispell—the gateway to Glacier and the heart of the Flathead!
 
 [Verse 1]
-Where the Flathead Valley opens wide beneath the Mission peaks,
-Kalispell stands as gateway where the adventure seeker seeks,
-The Historic District downtown holds a century of grace,
-And Logan Health keeps our community in place.
+Flathead Lake shimmering beneath the summer sun,
+Glacier National Park just a short drive run.
+Conrad Mansion standing proud on Third Avenue,
+Heritage Museum telling stories tried and true.
 
 [Pre-Chorus]
-Flathead Lake shimmering to the south,
-Glacier National Park just a quick drive out,
-Kalispell — the heart of Montana's northwest crown!
+Where the mountains meet the valley and the lake meets the sky,
+Kalispell, Montana—we'll aim high!
 
 [Chorus]
-Kalispell! Where Glacier's beauty starts right here,
-Kalispell! From Woodland Water Park to the Tamarack Brewpub cheer,
-Cranky Sam Brewing to the Central Avenue Mall,
-Kalispell, Montana — we welcome one and all!
+Kalispell, Kalispell, Flathead Valley's gem,
+Glacier's neighbor and a western diadem.
+Welcoming and wild with mountains all around,
+Kalispell, Montana—we're heaven-bound!
 
 [Verse 2]
-The Hockaday Museum of Art celebrates the local mind,
-The Flathead Valley Community College keeps us intertwined,
-From the Big Sky Waterpark to the Whitefish River trail,
-Kalispell's outdoor spirit never will derail.
+Woodland Water Park for families in the heat,
+Lone Pine State Park with a panoramic seat.
+Buffalo Hill Golf Course under open sky,
+Downtown revitalized—we're soaring high.
 
 [Pre-Chorus]
-Flathead Lake shimmering to the south,
-Glacier National Park just a quick drive out,
-Kalispell — the heart of Montana's northwest crown!
+Where the mountains meet the valley and the lake meets the sky,
+Kalispell, Montana—we'll aim high!
 
 [Chorus]
-Kalispell! Where Glacier's beauty starts right here,
-Kalispell! From Woodland Water Park to the Tamarack Brewpub cheer,
-Cranky Sam Brewing to the Central Avenue Mall,
-Kalispell, Montana — we welcome one and all!
+Kalispell, Kalispell, Flathead Valley's gem,
+Glacier's neighbor and a western diadem.
+Welcoming and wild with mountains all around,
+Kalispell, Montana—we're heaven-bound!
 
 [Bridge]
-Gateway to Going-to-the-Sun Road's winding ride,
-Base camp for adventures with the mountains as our guide,
-Flathead Valley gem with the lake and forest near,
-Kalispell — the northwest Montana atmosphere!
+From the Great Northern Railroad to the present day,
+Kalispell welcomes everyone along the way.
+Flathead Valley culture rooted deep and strong,
+Kalispell, Montana—this is where we belong!
 
 [Final Chorus]
-Kalispell! Where Glacier's beauty starts right here,
-Kalispell! From the Buffalo Hill golf to the railroad frontier,
-A city of four seasons with the mountains in our view,
-Kalispell, Montana — this valley's built for you!
+Kalispell, Kalispell, Flathead Valley's gem,
+Glacier's neighbor and a western diadem.
+Crystal clear and proud beneath the Big Sky dome,
+Kalispell, Montana—truly home!
 
 [Outro]
-Glacier Country's heart — Kalispell, Montana, welcoming you home!
+Lake and mountain, heart and soul,
+Kalispell forever—beautiful and whole.
 
 ---
 

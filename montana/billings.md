@@ -4,60 +4,60 @@
 ---
 
 **Genre:** Country Rock
-**Mood:** Uplifting, Powerful, Proud
-**Suno Tags:** [Style of Music: upbeat country rock with anthemic vocals, electric guitar, and driving drums]
+**Mood:** Proud, Uplifting, Energetic
+**Suno Tags:** [Style of Music: anthemic country rock, electric guitars, driving drums, male vocals, Montana pride, big sky energy]
 
 [Intro tag]
-Billings, Montana — the Magic City rising in the Yellowstone Valley...
+Yeah... this is Billings, Montana—largest city in the Big Sky State, baby!
 
 [Verse 1]
-Where the Yellowstone River rolls beneath the Rimrocks high,
-A city built on grit and gold beneath the Big Sky,
-From the railroad days to Pioneer Park on summer nights,
-Billings stands tenacious in the amber morning light.
+Petroglyphs on the Rimrocks tell a story thousands old,
+Lewis and Clark passed through here, brave and bold.
+Yellowstone's gateway city, where the adventure starts,
+Swordfish Missile Site and a hundred thousand hearts.
 
 [Pre-Chorus]
-With the Beartooth Mountains as our wall,
-We answer when the frontier calls,
-We're the biggest heart in Big Sky Country — hear us now!
+From the Billings Depot to the Yellowstone Valley floor,
+We stand a little taller, we always come back for more.
 
 [Chorus]
-Billings! We rise like the Rimrocks standing tall,
-Billings! Magic City — we give our all,
-From Parmly Billings Library to Metrapark's roar,
-This is Yellowstone country — this is home, this is more!
+Billings, Billings, biggest in the state,
+Rimrocks rising high, and we never hesitate!
+Montana's queen city, shining like the sun,
+Billings, Montana—we're the chosen one!
 
 [Verse 2]
-The Western Heritage Center tells the stories of the land,
-The Alberta Bair Theater — culture close at hand,
-From the Yellowstone Art Museum to the Billings skyline's glow,
-We're a city of dreamers where the prairie winds still blow.
+The Yellowstone International Air Show lights up the sky,
+ZooMontana brings the wonder, children laugh and cry.
+Babe Ruth played ball here in the summer of '22,
+Pioneer Park keeps our history shining through.
 
 [Pre-Chorus]
-With the Beartooth Mountains as our wall,
-We answer when the frontier calls,
-We're the biggest heart in Big Sky Country — hear us now!
+From the Billings Depot to the Yellowstone Valley floor,
+We stand a little taller, we always come back for more.
 
 [Chorus]
-Billings! We rise like the Rimrocks standing tall,
-Billings! Magic City — we give our all,
-From Parmly Billings Library to Metrapark's roar,
-This is Yellowstone country — this is home, this is more!
+Billings, Billings, biggest in the state,
+Rimrocks rising high, and we never hesitate!
+Montana's queen city, shining like the sun,
+Billings, Montana—we're the chosen one!
 
 [Bridge]
-Montana's largest city, but we never lost our soul,
-Tough as the limestone cliffs that make us whole,
-Gateway to the mountains, anchor of the plains,
-Billings, Montana — where the pride remains!
+Magic City born from railroad dreams,
+Cobblestones and steel and modern beams,
+We carry pioneers inside our veins,
+Billings runs through sunshine and through rain!
 
 [Final Chorus]
-Billings! We rise like the Rimrocks standing tall,
-Billings! Magic City — we give our all,
-From Pioneer Park to Swords Park's river light,
-Billings, Montana — our city shines so bright!
+Billings, Billings, biggest in the state,
+Rimrocks rising high and our pride won't wait!
+From the Yellowstone to the Rimrock crown,
+Billings, Montana—we will never back down!
 
 [Outro]
-Magic City, rising higher — Billings, Montana, burning with desire!
+Largest city, widest sky,
+Billings forever—watch us fly!
+Yeah... Big Sky Country starts right here.
 
 ---
 

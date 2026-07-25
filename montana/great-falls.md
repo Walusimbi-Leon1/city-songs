@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Classic Rock
-**Mood:** Bold, Triumphant, Rugged
-**Suno Tags:** [Style of Music: classic rock with powerful vocals, electric guitar, bass, and anthemic chorus]
+**Genre:** Country
+**Mood:** Proud, Spirited, Heartfelt
+**Suno Tags:** [Style of Music: heartfelt country, steel guitar, group vocals, Montana pride, western heritage]
 
 [Intro tag]
-Great Falls, Montana — the Electric City where the Missouri thunders free...
+Great Falls—where the Missouri River roars and history lives!
 
 [Verse 1]
-Where the Missouri River crashes over the Great Falls mighty,
-And the Electric City hums with energy and light,
-Charlie Russell painted cowboys and the sunset on the range,
-And Great Falls keeps that Western spirit burning change.
+Giant Springs pouring water from the earth so deep,
+Lewis and Clark's portage where their tired legs would sleep.
+Malmstrom Air Force standing guard across the plains,
+Charles Russell painted cowboys through the wind and rain.
 
 [Pre-Chorus]
-With the Highwood Mountains watching from the east,
-And history of the frontier within our reach,
-We're the Electric City — powered up and standing strong!
+Black Eagle Falls thundering, the Electric City's call,
+Great Falls, Montana—we stand strong and tall!
 
 [Chorus]
-Great Falls! Where the river roars and the pride runs deep,
-Great Falls! From the Paris Gibson Square to the Giant Springs' leap,
-The CM Russell Museum holds the legends that we keep,
-Great Falls, Montana — electric dreams run deep!
+Great Falls, Great Falls, electric through and through,
+The Missouri River carries our story, old and new.
+Cowboy art and waterfall power in our veins,
+Great Falls, Montana—we'll rise again!
 
 [Verse 2]
-The Lewis and Clark Interpretive Center tells the tale,
-Of explorers who followed the river's winding trail,
-From the Four Seasons Arena to the River's Edge Trail's mile,
-Great Falls, Montana — always free, always wild.
+C.M. Russell Museum keeping Western spirit strong,
+Sacagawea landing at the confluence below.
+From Rainbow Falls to Giant Springs—watch our city grow,
+Electric City lighting up the evening glow.
 
 [Pre-Chorus]
-With the Highwood Mountains watching from the east,
-And history of the frontier within our reach,
-We're the Electric City — powered up and standing strong!
+Black Eagle Falls thundering, the Electric City's call,
+Great Falls, Montana—we stand strong and tall!
 
 [Chorus]
-Great Falls! Where the river roars and the pride runs deep,
-Great Falls! From the Paris Gibson Square to the Giant Springs' leap,
-The CM Russell Museum holds the legends that we keep,
-Great Falls, Montana — electric dreams run deep!
+Great Falls, Great Falls, electric through and through,
+The Missouri River carries our story, old and new.
+Cowboy art and waterfall power in our veins,
+Great Falls, Montana—we'll rise again!
 
 [Bridge]
-Air Force base and farming land, military and wheat,
-Smelter city, supply town, heart of the Great Northern seat,
-Five waterfalls gave us power, power gave us name,
-Great Falls, Montana — nothing's ever gonna dim our flame!
+Five waterfalls cascading like a symphony of stone,
+The Russell Riders keeping cowboy legends known.
+From Fort Benton upstream where the steamboats used to land,
+Great Falls keeps the frontier spirit close at hand!
 
 [Final Chorus]
-Great Falls! Where the river roars and the pride runs deep,
-Great Falls! From the black eagle ironworks to the plains that never sleep,
-Montana's second city and we're ready for the leap,
-Great Falls, Montana — electric dreams run deep!
+Great Falls, Great Falls, electric through and through,
+The Missouri River carries our story, old and new.
+Five falls of fury, hearts that never wane,
+Great Falls, Montana—we'll rise again!
 
 [Outro]
-Five falls, one city — Great Falls, Montana, electric and free!
+Waterfalls and cowboys, under Big Sky blue,
+Great Falls forever—electric and true.
 
 ---
 

@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Folk Pop
-**Mood:** Energetic, Hopeful, Modern
-**Suno Tags:** [Style of Music: folk pop with upbeat acoustic guitar, banjo, harmonies, and a driving beat]
+**Genre:** Indie Rock
+**Mood:** Adventurous, Optimistic, Bold
+**Suno Tags:** [Style of Music: indie rock, upbeat energy, adventurous spirit, mountain-town vibe, optimistic vocals]
 
 [Intro tag]
-Bozeman, Montana — the boogie capital of Montana, alive with mountain dreams...
+Bozeman—where Gallatin Valley meets the summit of dreams!
 
 [Verse 1]
-Where the Gallatin Valley stretches wide beneath the Bridgers' crown,
-Montana State's bobcats roar as the pride of the town,
-Downtown Bozeman's Main Street buzzes with a brand-new light,
-Bridger Bowl powder days make every winter bright.
+Montana State Bobcats roaring from the field,
+Bridger Bowl powder days that make the spirit yield.
+Museum of the Rockies with dinosaurs and stars,
+Gallatin Valley fairgrounds beneath the western scars.
 
 [Pre-Chorus]
-With Hyalite Canyon waters cool and clear,
-And Yellowstone gateway always near,
-We're the Boogie Capital — skiing, climbing, living free!
+Between Bridger and the Gallatin range, we're alive,
+Bozeman, Montana—we thrive, we thrive!
 
 [Chorus]
-Bozeman! Where the mountains meet the open sky,
-Bozeman! From the Museum of the Rockies to the fairgrounds high,
-A city growing faster but its roots will never die,
-Bozeman, Montana — reaching for the sky!
+Bozeman, Bozeman, summit of the crown,
+Gallatin Valley diamonds never letting us down.
+Tech and trails and education leading the way,
+Bozeman, Montana—we own the day!
 
 [Verse 2]
-The Emerson Cultural Center hosts the art we love to make,
-The Gallatin History Museum tells it all for heaven's sake,
-From the Bozeman Hot Springs to the trails of drinking horse,
-Every footstep on this mountain ground is joyous, pure, and force.
+Danforth Peace Chapel where the quiet voices pray,
+Downtown Main Street glowing at the end of day.
+Hyalite Reservoir reflecting mountain light,
+Bozeman Powder Company keeping winters bright.
 
 [Pre-Chorus]
-With Hyalite Canyon waters cool and clear,
-And Yellowstone gateway always near,
-We're the Boogie Capital — skiing, climbing, living free!
+Between Bridger and the Gallatin range, we're alive,
+Bozeman, Montana—we thrive, we thrive!
 
 [Chorus]
-Bozeman! Where the mountains meet the open sky,
-Bozeman! From the Museum of the Rockies to the fairgrounds high,
-A city growing faster but its roots will never die,
-Bozeman, Montana — reaching for the sky!
+Bozeman, Bozeman, summit of the crown,
+Gallatin Valley diamonds never letting us down.
+Tech and trails and education leading the way,
+Bozeman, Montana—we own the day!
 
 [Bridge]
-John Bozeman blazed a trail and named this valley home,
-Now the Gallatin flows and we have never grown alone,
-Tech and timber, ranch and resort — we balance every day,
-Bozeman — the Boogie Capital leads the way!
+From Gallatin Field to Sourdough Ridge,
+Bozeman built on courage, wonder, and knowledge bridge.
+Meriwether Lewis found this valley on the expedition trail,
+Bozeman lives forever—strength will never fail!
 
 [Final Chorus]
-Bozeman! Where the mountains meet the open sky,
-Bozeman! With the Bridgers watching and the Gallatin running by,
-From MSU campus lights to the Yellowstone stars on high,
-Bozeman, Montana — our spirits never die!
+Bozeman, Bozeman, summit of the crown,
+Gallatin Valley diamonds never letting us down.
+Heart of Montana, wild and free and sound,
+Bozeman, Montana—we own the ground!
 
 [Outro]
-Boogie down, Bozeman — Gallatin Valley pride forever!
+Valley of dreams beneath the Bridger Range,
+Bozeman forever—nothing's gonna change.
 
 ---
 

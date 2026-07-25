@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Cowboy Country
-**Mood:** Rugged, Free, Western
-**Suno Tags:** [Style of Music: cowboy country with twangy vocals, steel guitar, acoustic guitar, and rodeo energy]
+**Genre:** Classic Country
+**Mood:** Tough, Cattle-proud, Western
+**Suno Tags:** [Style of Music: classic country, honky-tonk piano, steel guitar, rodeo energy, cattle-country pride]
 
 [Intro tag]
-Miles City, Montana — cowboy capital of the Big Sky, where the Bucking Horse Sale rules the range...
+Miles City—the cowboy capital of Montana, where the Bucking Horse Sale reigns!
 
 [Verse 1]
-On the banks of the Yellowstone where the cowboys ride in style,
-Miles City's Bucking Horse Sale has been the Western smile,
-Range riders and buckaroos from every Western state,
-Miles City — Montana's cowboy capital, first and great.
+Custer County Fairgrounds hosting rodeo dreams,
+Bucking Horse Sale thunder—nothing's what it seems.
+Range Riders Museum keeping the West alive,
+Broadway Avenue where the cowboys thrive.
 
 [Pre-Chorus]
-Broadway Avenue where the Western spirit flows,
-Custer County's heart where the prairie wind still blows,
-Miles City — home of the horse and the open range!
+Where the Yellowstone meets the prairie wide and free,
+Miles City, Montana—cowboy country!
 
 [Chorus]
-Miles City! Bucking Horse capital of the West,
-Miles City! From the Range Riders Museum to the rodeo's crest,
-Yellowstone River rolling by like a cowboy's steady song,
-Miles City, Montana — where the Western way is strong!
+Miles City, Miles City, rodeo town,
+Bucking horses throwing riders to the ground.
+Cattle country roots run deep and strong,
+Miles City, Montana—right where we belong!
 
 [Verse 2]
-The Range Riders Museum holds the legends of the land,
-The Montana/Dakota Fair brings the county's best to stand,
-From the Yellowstone River bridge to the open grazing plains,
-Miles City's cowboy heritage forever remains.
+Pirogue Island refuge where the wildlife stays,
+Yucca Theatre shining through the western haze.
+Miles City Arena on the Saturday night,
+Stockman's Bar and Grill keeping spirits bright.
 
 [Pre-Chorus]
-Broadway Avenue where the Western spirit flows,
-Custer County's heart where the prairie wind still blows,
-Miles City — home of the horse and the open range!
+Where the Yellowstone meets the prairie wide and free,
+Miles City, Montana—cowboy country!
 
 [Chorus]
-Miles City! Bucking Horse capital of the West,
-Miles City! From the Range Riders Museum to the rodeo's crest,
-Yellowstone River rolling by like a cowboy's steady song,
-Miles City, Montana — where the Western way is strong!
+Miles City, Miles City, rodeo town,
+Bucking horses throwing riders to the ground.
+Cattle country roots run deep and strong,
+Miles City, Montana—right where we belong!
 
 [Bridge]
-Bucking Horse Sale draws the toughest riders in the land,
-Cowboys, bucking bulls, and horses — that's our brand,
-Custer County seat, Eastern Montana's proudest town,
-Miles City — wear the boots and never back down!
+John B. Miles founded us with frontier grit,
+Cottonwood trees and open-range benefit.
+Bucking Horse Sale, biggest in the land,
+Miles City cowboys—we take a stand!
 
 [Final Chorus]
-Miles City! Bucking Horse capital of the West,
-Miles City! From Fort Keogh's history to the cowboy's quest,
-The Tongue River meets the Yellowstone on our floor,
-Miles City, Montana — we're the West forevermore!
+Miles City, Miles City, rodeo town,
+Bucking horses throwing riders to the ground.
+From the Yellowstone to the prairie long and wide,
+Miles City, Montana—we ride!
 
 [Outro]
-Buck, ride, and ride again — Miles City, Montana, cowboy reign!
+Cowboy forever, prairie strong,
+Miles City—we've been here all along.
 
 ---
 

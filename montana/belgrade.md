@@ -3,61 +3,60 @@
 
 ---
 
-**Genre:** Country Pop
-**Mood:** Friendly, Growing, Optimistic
-**Suno Tags:** [Style of Music: country pop with bright vocals, acoustic guitar, light drums, and harmonies]
+**Genre:** Folk Pop
+**Mood:** Growing, Optimistic, Friendly
+**Suno Tags:** [Style of Music: folk pop, upbeat acoustic, friendly energy, small-city optimism, warm vocals]
 
 [Intro tag]
-Belgrade, Montana — the friendly gateway to the Gallatin Valley, growing with heart...
+Belgrade—the fast-growing heart of the Gallatin Valley!
 
 [Verse 1]
-Just north of Bozeman where the Gallatin prairies gleam,
-Belgrade, Montana — every family's American dream,
-Main Street smiles and new neighborhoods springing up,
-The friendliest small city filling every cup.
+Bozeman Yellowstone Airport welcoming every flight,
+Belgrade growing daily in the mountain light.
+Gallatin County Fairgrounds ringing with the cheer,
+Broadway Avenue—small-town charm so near.
 
 [Pre-Chorus]
-Hawkins Bridge over the Gallatin River clear,
-Four-horse community pulling year by year,
-Belgrade — small-town warmth in a growing frontier!
+Where the Gallatin River winds through open space,
+Belgrade, Montana—growing with grace!
 
 [Chorus]
-Belgrade! Where community and growth come together,
-Belgrade! From the Drouin Park to the mountain weather,
-Bozeman Yellowstone International — our airport flies so high,
-Belgrade, Montana — a friendly place to try!
+Belgrade, Belgrade, Gallatin Valley's pride,
+Growing strong with family by our side.
+Airport town with mountains all around,
+Belgrade, Montana—we're solid ground!
 
 [Verse 2]
-The Belgrade Community Library opens up its doors,
-The Belgrade Senior Center serves the hearts that made it yours,
-From Main Street's Fourth of July parade to winter ski day plans,
-Belgrade wraps around you like Montana open hands.
+Belgrade Community Library where the knowledge flows,
+Local barbecue bringing everyone in rows.
+Belgrade High Panthers giving all they've got,
+Four-H and FFA keeping spirit hot.
 
 [Pre-Chorus]
-Hawkins Bridge over the Gallatin River clear,
-Four-horse community pulling year by year,
-Belgrade — small-town warmth in a growing frontier!
+Where the Gallatin River winds through open space,
+Belgrade, Montana—growing with grace!
 
 [Chorus]
-Belgrade! Where community and growth come together,
-Belgrade! From the Drouin Park to the mountain weather,
-Bozeman Yellowstone International — our airport flies so high,
-Belgrade, Montana — a friendly place to try!
+Belgrade, Belgrade, Gallatin Valley's pride,
+Growing strong with family by our side.
+Airport town with mountains all around,
+Belgrade, Montana—we're solid ground!
 
 [Bridge]
-Gallatin Valley gem with the Bridger Range in view,
-From farming roots to a future bold and new,
-We're Montana's fastest-growing but we still know every name,
-Belgrade — small-town pride is our claim to fame!
+From railroad town to modern-day oasis,
+Belgrade welcomes every new face.
+Gallatin Valley's little gem shining bright,
+Belgrade, Montana—we'll reach new height!
 
 [Final Chorus]
-Belgrade! Where community and growth come together,
-Belgrade! Four corners of the Gallatin Valley bound together,
-From the Headwaters State Park to the Bridger Ridge line,
-Belgrade, Montana — this community is mine!
+Belgrade, Belgrade, Gallatin Valley's pride,
+Growing strong with family by our side.
+Big Sky spirit with a friendly face,
+Belgrade, Montana—this is our place!
 
 [Outro]
-Gallatin Valley friendly — Belgrade, Montana, home sweet home!
+Growing fast with Gallatin grace,
+Belgrade forever—this is our place.
 
 ---
 
