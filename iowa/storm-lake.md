@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Pop/Community Anthem
-**Mood:** Lakeside, Diverse, Welcoming
-**Snoo Tags:** [Style of Music: pop community anthem, lakeside, diverse, welcoming, bright vocals, upbeat rhythm, Iowa Buena Vista County pride]
+**Genre:** Pop-Country
+**Mood:** Lakeside, Energetic, Diverse
+**Suno Tags:** [Style of Music: Pop-country, catchy hook, upbeat rhythm, diverse spirit]
 
 [Intro tag]
-Storm Lake — Buena Vista County's vibrant heart!
+Storm Lake — where the lake is always stirring!
 
 [Verse 1]
-Storm Lake glistening in the morning light,
-Buena Vista County's crown so bright,
-King's Pointe Waterpark splashing with fun,
-Storm Lake Casino lights up everyone,
-Storm Lake High Typhoon — strong in the ring,
-Storm Lake — the pride of the ring.
+Storm Lake rippling in the morning light,
+Buena Vista County shining bright,
+The lake in the center of everything,
+Storm Lake — listen to us sing.
 
 [Pre-Chorus]
-Diverse and growing, that's our way,
-Storm Lake — every single day.
+Buena Vista County's capital so grand,
+Storm Lake — across the land.
 
 [Chorus]
-Storm Lake, Storm Lake, lakeside and bright,
-Buena Vista County shining tonight,
-Storm Lake, Storm Lake, diverse and free,
-Storm Lake — for you and me.
+Storm Lake, Storm Lake, lake in our name,
+The city of diversity and fame,
+King's Pointe Waterpark splashing fun,
+Storm Lake — beneath the sun!
 
 [Verse 2]
-Crescent Park along the water's edge,
-Storm Lake community where we pledge,
-Buena Vista University on the north side,
-Storm Lake — with nothing to hide,
-Lake areas golfing on a summer's gleam,
-Storm Lake — living the dream.
+The Storm Lake Public Library on the shore,
+The BVU campus near the lake's floor,
+The churning lake beneath the prairie sky,
+Storm Lake — we're flying high.
 
 [Pre-Chorus]
-Diverse and growing, that's our way,
-Storm Lake — every single day.
+Buena Vista County's capital so grand,
+Storm Lake — across the land.
 
 [Chorus]
-Storm Lake, Storm Lake, lakeside and bright,
-Buena Vista County shining tonight,
-Storm Lake, Storm Lake, diverse and free,
-Storm Lake — for you and me.
+Storm Lake, Storm Lake, lake in our name,
+The city of diversity and fame,
+King's Pointe Waterpark splashing fun,
+Storm Lake — beneath the sun!
 
 [Bridge]
-Refugee families built this town anew,
-Storm Lake — strong through and through,
-Diverse voices, one community,
-Storm Lake — unity.
+Diverse and determined, that's our way,
+Storm Lake, bright as any day,
+A lake that churns with energy and pride,
+Storm Lake — always by your side.
 
 [Final Chorus]
-Storm Lake, Storm Lake, lakeside and bright,
-Buena Vista County shining tonight,
-Storm Lake, Storm Lake, proud all around,
-Storm Lake — best town!
+Storm Lake, Storm Lake, standing strong,
+The lake is right where we belong,
+Buena Vista's finest light,
+Storm Lake — burning bright!
 
 [Outro]
-Storm Lake — lakeside proud, forever diverse.
+Storm Lake, Iowa, lake in the prairie,
+Diversity's song is legendary,
+Storm Lake, always churning free,
+Storm Lake — the place to be!
 
 ---
 

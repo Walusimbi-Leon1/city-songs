@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Rock
-**Mood:** Racing, Energetic, Proud
-**Snoo Tags:** [Style of Music: country rock, racing, energetic, proud, electric guitar, driving drums, Iowa racing capital pride]
+**Genre:** Racing Rock
+**Mood:** Exciting, Speed-Filled, Proud
+**Suno Tags:** [Style of Music: Racing rock, revving guitars, high-energy beat, speed-inspired chorus]
 
 [Intro tag]
 Knoxville — the Sprint Car Capital of the World!
 
 [Verse 1]
-Knoxville Raceway under the Saturday night lights,
-Sprint cars roaring through the Iowa nights,
-Marion County seat with a racing soul,
-Knoxville — that's our goal,
-The National Sprint Car Hall of Fame in town,
-Knoxville — always burning down.
+The Knoxville Raceway thundering every night,
+Knoxville, Iowa, burning bright,
+Sprint cars flying on the half-mile track,
+Knoxville — holding nothing back.
 
 [Pre-Chorus]
-Marion County pride, engines loud,
-Knoxville — standing out from the crowd.
+Marion County's racing crown,
+Knoxville — the fastest in town!
 
 [Chorus]
-Knoxville, Knoxville, racing town strong,
-Sprint Car Capital, sing our song,
-Knoxville, Knoxville, engines roar,
-Knoxville — forevermore.
+Knoxville, Knoxville, sprint car town,
+The fastest city around,
+The Nationals shaking the ground below,
+Knoxville — putting on a show!
 
 [Verse 2]
-Eisenhower Park where the families play,
-Knoxville Community Pool on a summer day,
-Red Rock Lake just a short drive south,
-Marion County Fair bringing joy to your mouth,
-Knoxville High Panthers charging on the field,
-Knoxville — never gonna yield.
+The Knoxville Public Library's a peaceful place,
+Lakeside Park on a sunny space,
+The Marion County Fair adding to the fun,
+Knoxville — Iowa's number one.
 
 [Pre-Chorus]
-Marion County pride, engines loud,
-Knoxville — standing out from the crowd.
+Marion County's racing crown,
+Knoxville — the fastest in town!
 
 [Chorus]
-Knoxville, Knoxville, racing town strong,
-Sprint Car Capital, sing our song,
-Knoxville, Knoxville, engines roar,
-Knoxville — forevermore.
+Knoxville, Knoxville, sprint car town,
+The fastest city around,
+The Nationals shaking the ground below,
+Knoxville — putting on a show!
 
 [Bridge]
-Half-mile dirt track, world-class fame,
-Sprint Car Capital — that's our name,
-From Knoxville to the nation's stage,
-Racing's written on every page.
+Since 1901 the dirt has flown,
+Knoxville's race track is well-known,
+Sprint car capital, engines roar,
+Knoxville — forevermore.
 
 [Final Chorus]
-Knoxville, Knoxville, racing town strong,
-Sprint Car Capital, sing our song,
-Knoxville, Knoxville, let them hear,
-Knoxville — we're right here!
+Knoxville, Knoxville, standing tall,
+Engines roaring, answering the call,
+Marion County's racing soul,
+Knoxville — forever whole!
 
 [Outro]
-Knoxville — sprint car proud, forever fast.
+Knoxville, Iowa, racing heart,
+Dirt tracks and engines, world-class art,
+Sprint Car Capital, that's our claim,
+Knoxville — racing hall of fame!
 
 ---
 

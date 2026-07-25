@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Bluegrass
-**Mood:** Historic, Locomotive-Spirited, Warm
-**Snoo Tags:** [Style of Music: country bluegrass, historic, locomotive-spirited, warm, banjo and fiddle, storytelling vocals, Iowa railroad town pride]
+**Genre:** Country Folk
+**Mood:** Scenic, Proud, Nature-Loving
+**Suno Tags:** [Style of Music: Country folk, gentle acoustic, scenic beauty, warm storytelling]
 
 [Intro tag]
-Boone — where the rails meet the prairie!
+Boone — home of the Boone & Scenic Valley Railroad!
 
 [Verse 1]
-Boone and Scenic Railroad chugging through the hills,
-Ledges State Park where the water spills,
-Mamie Eisenhower's birthplace in this town,
-Boone County's pride — we won't back down,
-Kate Shelley High Bridge towering up so tall,
-Boone — we've got railroad roots and all.
+Ledges State Park in the canyon deep,
+Boone, Iowa secrets that we keep,
+The Boone & Scenic Valley chugging through the night,
+Boone — a wondrous sight.
 
 [Pre-Chorus]
-Rails and river, hill and dale,
-Boone's got a locomotive trail.
+Boone County's capital shining clear,
+Boone — we hold our hearts near.
 
 [Chorus]
-Boone, Boone, railroad town strong,
-Boone County's been singing this song,
-Boone, Boone, historic and true,
-Boone — we're proud of you.
+Boone, Boone, scenic and free,
+Ledges State Park by the Des Moines we see,
+The railroad tracks and the canyon walls,
+Boone — answering nature's calls!
 
 [Verse 2]
-Eveleigh Railroad Museum telling the story,
-McHose Park in all its glory,
-Ledges' sandstone bluffs carved by time,
-Boone Heritage Festival, doing just fine,
-High Trestle Trail reaching far and wide,
-Boone — we've got a history ride.
+The Boone & Scenic Valley Railroad ride,
+Trestle bridge with the river wide,
+McHose Park on a summer's day,
+Boone — always the Iowa way.
 
 [Pre-Chorus]
-Rails and river, hill and dale,
-Boone's got a locomotive trail.
+Boone County's capital shining clear,
+Boone — we hold our hearts near.
 
 [Chorus]
-Boone, Boone, railroad town strong,
-Boone County's been singing this song,
-Boone, Boone, historic and true,
-Boone — we're proud of you.
+Boone, Boone, scenic and free,
+Ledges State Park by the Des Moines we see,
+The railroad tracks and the canyon walls,
+Boone — answering nature's calls!
 
 [Bridge]
-Named for Captain Boone of pioneer days,
-Railroad junction in a thousand ways,
-From coal trains to trail rides now,
-Boone takes a bow.
+Canyons, bluffs, and railroad ties,
+Boone beneath the endless skies,
+Nature's beauty in every mile,
+Boone — Iowa's scenic style.
 
 [Final Chorus]
-Boone, Boone, railroad town strong,
-Boone County's been singing this song,
-Boone, Boone, one more cheer,
-Boone — we're glad you're here!
+Boone, Boone, standing tall,
+Ledges and railroad and all,
+Boone County's pride so bright,
+Boone — a natural light!
 
 [Outro]
-Boone — railroad proud, always on track.
+Boone, Iowa, ledges so grand,
+The finest scenery in all the land,
+Boonie River, canyon deep,
+Boone — where the wild things keep!
 
 ---
 

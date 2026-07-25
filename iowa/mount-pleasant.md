@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Gospel
-**Mood:** Historic, Cultured, Warm
-**Snoo Tags:** [Style of Music: country gospel, historic, cultured, warm, acoustic guitar, choir, Iowa Henry County pride]
+**Genre:** Heritage Country
+**Mood:** Proud, Historic, Warm
+**Suno Tags:** [Style of Music: Heritage country, warm fiddle, historic storytelling, hometown pride]
 
 [Intro tag]
-Mount Pleasant — Henry County's cultured capital!
+Mount Pleasant — Henry County's crown jewel!
 
 [Verse 1]
-Henry County seat with history's grace,
-Mount Pleasant — Iowa's treasured space,
-Midwest Old Threshers Reunion every fall,
-Steam engines answering history's call,
-Danish Immigrant Museum telling the tale,
-Mount Pleasant — beyond the pale.
+The Henry County Fair bringing crowds from near,
+Mount Pleasant, Iowa, full of cheer,
+The Midwest Old Threshers Reunion every fall,
+Mount Pleasant — giving our all.
 
 [Pre-Chorus]
-Henry County crown, heritage and pride,
-Mount Pleasant — standing side by side.
+Henry County's capital so grand,
+Mount Pleasant — Iowa's land.
 
 [Chorus]
-Mount Pleasant, Mount Pleasant, Henry County strong,
-Heritage and culture singing this song,
-Mount Pleasant, Mount Pleasant, warm and true,
-Mount Pleasant — we belong to you.
+Mount Pleasant, Mount Pleasant, history's crown,
+The finest festival in town,
+Old Threshers shaking the ground below,
+Mount Pleasant — let it go!
 
 [Verse 2]
-Iowa Wesleyan University on the hill,
-Southeastern Community College with the thrill,
-Central Park on a summer day,
-The Grand — entertainment all the way,
-Saude Creek Park in the autumn gold,
-Mount Pleasant — never growing old.
+The Harlan-Lincoln House on the campus grounds,
+Iowa Wesleyan's legacy abounds,
+The McMillan Park on a summer's day,
+Mount Pleasant — the Iowa way.
 
 [Pre-Chorus]
-Henry County crown, heritage and pride,
-Mount Pleasant — standing side by side.
+Henry County's capital so grand,
+Mount Pleasant — Iowa's land.
 
 [Chorus]
-Mount Pleasant, Mount Pleasant, Henry County strong,
-Heritage and culture singing this song,
-Mount Pleasant, Mount Pleasant, warm and true,
-Mount Pleasant — we belong to you.
+Mount Pleasant, Mount Pleasant, history's crown,
+The finest festival in town,
+Old Threshers shaking the ground below,
+Mount Pleasant — let it go!
 
 [Bridge]
-Steam engines and Danish roots,
-Mount Pleasant's living proof,
-Culture, history, heart and soul,
-Henry County — making us whole.
+Iowa Wesleyan, one of the oldest schools,
+Mount Pleasant — ancient tools,
+Threshers' reunion, engines that roar,
+Mount Pleasant — giving history more.
 
 [Final Chorus]
-Mount Pleasant, Mount Pleasant, Henry County strong,
-Heritage and culture singing this song,
-Mount Pleasant, Mount Pleasant, raise it high,
-Mount Pleasant under Iowa's sky!
+Mount Pleasant, Mount Pleasant, proud and free,
+Henry County's legacy,
+Old Threshers, Wesleyan, and more,
+Mount Pleasant — we adore!
 
 [Outro]
-Mount Pleasant — historic proud, forever cultured.
+Mount Pleasant, Iowa, thresher's pride,
+History rolling with the tide,
+Henry County's capital crown,
+Mount Pleasant — never backing down!
 
 ---
 

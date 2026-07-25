@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Folk
-**Mood:** Lakeside, Festive, Warm
-**Snoo Tags:** [Style of Music: country folk, lakeside, festive, warm, acoustic guitar, fiddle, Iowa Clay County pride]
+**Genre:** Midwest Country
+**Mood:** Upbeat, Lakeside, Friendly
+**Suno Tags:** [Style of Music: Midwest country, upbeat fiddle, lakeside vibe, friendly energy]
 
 [Intro tag]
-Spencer — the Prairie Lakes region's heart!
+Spencer — gateway to the Iowa Great Lakes!
 
 [Verse 1]
-Clay County seat by the Iowa Great Lakes,
-Spencer — where the summer breaks,
-Innovation Prairie Lakes Hospital saving lives,
-Spencer Community Theatre where the drama thrives,
-East Okoboji just a stone's throw away,
-Spencer — every single day.
+The Okoboji lakes are shimmering bright,
+Spencer, Iowa, day and night,
+Clay County's capital, standing tall,
+Spencer — giving our all.
 
 [Pre-Chorus]
-Prairie Lakes country, Spencer's crown,
-Clay County singing loud and proud in town.
+Great Lakes region, that's our home,
+Spencer — we'll never roam.
 
 [Chorus]
-Spencer, Spencer, lakeside town strong,
-Prairie Lakes region singing this song,
-Spencer, Spencer, warm and free,
-Spencer — come and see.
+Spencer, Spencer, lakeside pride,
+Where the Iowa Great Lakes meet inside,
+The Clay County Fair is calling loud,
+Spencer — standing proud!
 
 [Verse 2]
-Crescent Park on a morning walk,
-Spencer Municipal Pool — splash and talk,
-Spencer Public Library on a quiet street,
-Lakes area pride can't be beat,
-Spencer High Tigers on a Friday night,
-Spencer — everything's all right.
+The Spencer Public Library gleaming new,
+The Clay County Fairgrounds with a view,
+East Leech Park on a summer day,
+Spencer — the Iowa way.
 
 [Pre-Chorus]
-Prairie Lakes country, Spencer's crown,
-Clay County singing loud and proud in town.
+Great Lakes region, that's our home,
+Spencer — we'll never roam.
 
 [Chorus]
-Spencer, Spencer, lakeside town strong,
-Prairie Lakes region singing this song,
-Spencer, Spencer, warm and free,
-Spencer — come and see.
+Spencer, Spencer, lakeside pride,
+Where the Iowa Great Lakes meet inside,
+The Clay County Fair is calling loud,
+Spencer — standing proud!
 
 [Bridge]
-Near the lakes where the vacationers play,
-Spencer's working hard every day,
-Small-town Iowa with a tourist flair,
-Spencer — beyond compare.
+Okoboji and West Okoboji blue,
+Spencer — a city fresh and new,
+Gateway to the lakes of Iowa's north,
+Spencer — showing what it's worth.
 
 [Final Chorus]
-Spencer, Spencer, lakeside town strong,
-Prairie Lakes region singing this song,
-Spencer, Spencer, proud as the day,
-Spencer — Iowa's lakeside way!
+Spencer, Spencer, standing tall,
+Gateway to the lakes and all,
+Clay County's capital, shining free,
+Spencer — wild and carefree!
 
 [Outro]
- Spencer — lakeside proud, forever festive.
+Spencer, Iowa, lakeside gem,
+Beyond the beauty, beyond the hem,
+Gateway to the Great Lakes' shore,
+Spencer — we love you more!
 
 ---
 

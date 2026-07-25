@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Contemporary Country
-**Mood:** Suburban, Bright, Community-Driven
-**Suno Tags:** [Style of Music: contemporary country, suburban, bright, community-driven, acoustic strum, light drums, Iowa suburban pride]
+**Genre:** Bright Pop
+**Mood:** Upbeat, Suburban Pride, Forward-Looking
+**Suno Tags:** [Style of Music: Bright pop, clean production, optimistic feel, suburban pride]
 
 [Intro tag]
-Johnston — where the suburbs meet the heartland!
+Johnston — growing with the heart of Iowa!
 
 [Verse 1]
-Saylorville Lake just a stone's throw away,
-Johnston on a bright and beautiful day,
-Terrace Hill Golf Course under Iowa skies,
-Walnut Creek winding where the wild grass lies,
-Windfield Heights on a walking trail,
-Johnston — never going to fail.
+Just northwest of Des Moines, a city blooms,
+Johnston, shattering the room,
+Saylorville Lake is just a drive away,
+Johnston — brighter every day.
 
 [Pre-Chorus]
-Polk County suburb with a small-town feel,
-Johnston's community is real.
+Polk County gem, on the rise,
+Johnston reaching for the skies.
 
 [Chorus]
-Johnston, Johnston, suburban shine,
-Polk County pride in every line,
-Johnston, Johnston, home sweet place,
-Johnston — Iowa's favorite space.
+Johnston, Johnston, growing tall,
+A suburban gem for one and all,
+Heritage Park where history's told,
+Johnston — bold and gold!
 
 [Verse 2]
-Beaver Creek Elementary, kids at play,
-Johnston High Dragons on a Friday,
-Grays Lake Park just a short drive south,
-Bridges of Johnston — connecting mouth,
-The District at Prairie Trail nearby,
-Johnston — Iowa's suburban sky.
+The Johnston Public Library's a modern hall,
+Twin Parks where the families call,
+Walnut Creek winding through the green,
+Johnston — Iowa's finest scene.
 
 [Pre-Chorus]
-Polk County suburb with a small-town feel,
-Johnston's community is real.
+Polk County gem, on the rise,
+Johnston reaching for the skies.
 
 [Chorus]
-Johnston, Johnston, suburban shine,
-Polk County pride in every line,
-Johnston, Johnston, home sweet place,
-Johnston — Iowa's favorite space.
+Johnston, Johnston, growing tall,
+A suburban gem for one and all,
+Heritage Park where history's told,
+Johnston — bold and gold!
 
 [Bridge]
-From farming roots to a modern sprawl,
-Johnston welcomes one and all,
-Neighbors to neighbors, side by side,
-Johnston — with Iowa pride.
+From the farm fields of a century past,
+To a modern city growing fast,
+Johnston, with an open heart,
+A community that's set apart.
 
 [Final Chorus]
-Johnston, Johnston, suburban shine,
-Polk County pride in every line,
-Johnston, Johnston, loud and clear,
-Johnston — we're glad you're here!
+Johnston, Johnston, standing proud,
+Sing it clear and sing it loud,
+Polk County pride from shore to shore,
+Johnston — forevermore!
 
 [Outro]
-Johnston — suburban bright, forever growing.
+Johnston, Iowa, suburbs shine,
+Near Saylorville, looking fine,
+Growing strong and staying true,
+Johnston — we believe in you!
 
 ---
 

@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** College Rock/Indie
-**Mood:** Spirited, Lively, Collegiate
-**Suno Tags:** [Style of Music: college rock indie, spirited, lively, collegiate, energetic guitars, UNI pride, Iowa college town energy]
+**Genre:** Folk-Pop
+**Mood:** Charming, University-Spirited, Lively
+**Suno Tags:** [Style of Music: Folk-pop, acoustic strumming, lively tempo, college-town charm]
 
 [Intro tag]
-Cedar Falls — home of the Panthers — let's roar!
+Cedar Falls — home of the Panthers!
 
 [Verse 1]
-UNI-Dome shaking on a Saturday night,
-Panther football under the stadium light,
-Overman Park where the families gather round,
-The Cedar River flowing through this college town,
-Historic Main Street with its shops and charm,
-Cedar Falls — you do us no harm.
+The Cedar River rushing through the town,
+UNI Panthers never backing down,
+College Hill rising like a crown,
+Cedar Falls — the best in town.
 
 [Pre-Chorus]
-Panther pride running through our veins,
-Cedar Falls is breaking chains.
+Twin cities with Waterloo next door,
+Cedar Falls always wanting more.
 
 [Chorus]
-Cedar Falls, Cedar Falls, black and gold,
-UNI Panthers, brave and bold,
-Cedar Falls, Cedar Falls, college town pride,
-With the Panther spirit deep inside.
+Cedar Falls, Cedar Falls, so free,
+UNI Panthers for eternity,
+The Overman Park on a summer day,
+Cedar Falls — the Iowa way!
 
 [Verse 2]
-Campbell Art Hall where the creatives meet,
-Hearst Center for the arts on the tree-lined street,
-Sturgis Falls running through the summer heat,
-The Cedar Valley's heart can't be beat,
-Ice Arena echoing the skating sound,
-Cedar Falls — where dreams are found.
+The Hearst Center for the Arts nearby,
+Martin Luther King Jr. Center reaching high,
+Campustown vibes on a Friday night,
+Cedar Falls beneath the city light.
 
 [Pre-Chorus]
-Panther pride running through our veins,
-Cedar Falls is breaking chains.
+Twin cities with Waterloo next door,
+Cedar Falls always wanting more.
 
 [Chorus]
-Cedar Falls, Cedar Falls, black and gold,
-UNI Panthers, brave and bold,
-Cedar Falls, Cedar Falls, college town pride,
-With the Panther spirit deep inside.
+Cedar Falls, Cedar Falls, so free,
+UNI Panthers for eternity,
+The Overman Park on a summer day,
+Cedar Falls — the Iowa way!
 
 [Bridge]
-Wartburg's rival but we're still one valley,
-Cedar Falls energy, the best in the alley,
-Academic excellence and athletic flame,
-Cedar Falls — remember the name.
+The Uni-Dome echoing with pride,
+Panther football deep inside,
+River hawks and campus trails,
+Cedar Falls — where the future sails.
 
 [Final Chorus]
-Cedar Falls, Cedar Falls, black and gold,
-UNI Panthers, brave and bold,
-Cedar Falls, Cedar Falls, roar it loud,
-Cedar Falls forever proud!
+Cedar Falls, Cedar Falls, standing tall,
+Proud to give our very all,
+UNI blue and gold so bright,
+Cedar Falls — a beautiful sight!
 
 [Outro]
-Cedar Falls — Panther proud, always black and gold.
+Cedar Falls, Iowa, we sing your name,
+UNI Panthers in the hall of fame,
+River city with a Panther's heart,
+Cedar Falls — never apart!
 
 ---
 

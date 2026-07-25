@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Americana/Folk
-**Mood:** Historic, Scenic, Romantic
-**Suno Tags:** [Style of Music: americana folk, historic, scenic, romantic, fingerpicking guitar, harmony, Iowa Mississippi bluffs pride]
+**Genre:** Traditional Folk
+**Mood:** Heritage-Rich, Warm, Storied
+**Suno Tags:** [Style of Music: Traditional folk, banjo and fiddle, warm storytelling, heritage pride]
 
 [Intro tag]
-Burlington — where the bluffs meet the river!
+Burlington — Iowa's oldest city, perched on bluffs!
 
 [Verse 1]
-Snake Alley curving like a corkscrew road,
-Burlington's most famous winding mode,
-Mississippi bluffs painted autumn gold,
-Heritage Hill where the stories unfold,
-Burlington Memorial Bridge crossing the stream,
-Burlington — living the American dream.
+Snake River and Mississippi meet below,
+Burlington sitting high in a winter's snow,
+The Snake Alley — world's crookedst street,
+Burlington with nothing incomplete.
 
 [Pre-Chorus]
-Des Moines County pride from the river's edge,
-Burlunset beauty and the bluffs' ledge.
+Des Moines County's finest pride,
+Burlington standing by the riverside.
 
 [Chorus]
-Burlington, Burlington, bluffs and the river wide,
-Mississippi magic deep inside,
-Burlington, Burlington, scenic and strong,
-This river town has sung so long.
+Burlington, Burlington, bluffs so high,
+Beneath the endless Iowa sky,
+The Capitol Theater where the shows begin,
+Burlington — let the music spin!
 
 [Verse 2]
-Capitol Theater hosting every show,
-Burlington Bees swinging in the spring's warm glow,
-Tama Tea Park on a summer day,
-Art Center showcasing the local way,
-Jefferson Street lined with shops and charm,
-Burlington — where the history's warm.
+The Burlington Depot along the rail,
+Heritage Hill with its Victorian veil,
+The Art Center in Crapo Park so green,
+Burlington, Iowa's finest scene.
 
 [Pre-Chorus]
-Des Moines County pride from the river's edge,
-Burlunset beauty and the bluffs' ledge.
+Des Moines County's finest pride,
+Burlington standing by the riverside.
 
 [Chorus]
-Burlington, Burlington, bluffs and the river wide,
-Mississippi magic deep inside,
-Burlington, Burlington, scenic and strong,
-This river town has sung so long.
+Burlington, Burlington, bluffs so high,
+Beneath the endless Iowa sky,
+The Capitol Theater where the shows begin,
+Burlington — let the music spin!
 
 [Bridge]
-Beehive Capital of Iowa, buzzing with pride,
-From railroad hub to riverside,
-Steamboat days to a modern beat,
-Burlington — you can't be beat.
+The Hawkeye Marching Band played here first,
+Burlington's history, universal thirst,
+From the Native American mound to the present day,
+Burlington shows us the way.
 
 [Final Chorus]
-Burlington, Burlington, bluffs and the river wide,
-Mississippi magic deep inside,
-Burlington, Burlington, one more time we sing,
-Burlington — Iowa's river ring!
+Burlington, Burlington, oldest of all,
+Standing proudly, standing tall,
+Des Moines County's treasure gleaming free,
+Burlington — the place to be!
 
 [Outro]
-Burlington — bluff city, forever scenic.
+Burlington, Iowa, bluffs above the rivers wide,
+A city with a pioneering tide,
+Snake Alley crooked, but our path is straight,
+Burlington — Iowa's gateway to a better fate!
 
 ---
 

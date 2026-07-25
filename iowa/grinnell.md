@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Indie/Academic Pop
-**Mood:** Intellectual, Progressive, Proud
-**Snoo Tags:** [Style of Music: indie academic pop, intellectual, progressive, proud, bright acoustic, thoughtful vocals, Iowa college town pride]
+**Genre:** Intellectual Indie-Folk
+**Mood:** Academic, Historic, Progressive
+**Suno Tags:** [Style of Music: Intellectual indie-folk, thoughtful lyrics, campus energy, progressive feel]
 
 [Intro tag]
-Grinnell — home of the Pioneers!
+Grinnell — where Grinnell College and the prairie meet!
 
 [Verse 1]
-Grinnell College where the scholars shine,
-Pioneers of knowledge, yours and mine,
-Bucksbaum Arts Center lighting up the stage,
-Grinnell's creative spirit's all the rage,
-Downtown on a Saturday morning light,
-Grinnell — progressive and bright.
+Grinnell College at the center of town,
+Pioneer spirit all around,
+The Stewart Memorial Library gleaming bright,
+Grinnell — a progressive light.
 
 [Pre-Chorus]
-Poweshiek County pride, intellectual and free,
-Grinnell is where we want to be.
+Poweshiek County's college town,
+Grinnell — the finest around.
 
 [Chorus]
-Grinnell, Grinnell, Pioneer spirit bold,
-Poweshiek County's story being told,
-Grinnell, Grinnell, progressive and free,
-Grinnell — just wait and see.
+Grinnell, Grinnell, college and town,
+Where the intellectual spirit's found,
+The Pioneer Hook emblem shining true,
+Grinnell — we believe in you!
 
 [Verse 2]
-Bear Park with the sculptures gleaming bright,
-Stew-Mack Athletic Center with all its might,
-Grinnell's DDT trail in the summer's heat,
-Merchants Park where the locals meet,
-Spaulding House with its Prairie Style grace,
-Grinnell — finding its place.
+The Grinnell Public Library, a community space,
+The Davis Elementary school's embrace,
+Merle Hay Park on a winter's day,
+Grinnell — the Iowa way.
 
 [Pre-Chorus]
-Poweshiek County pride, intellectual and free,
-Grinnell is where we want to be.
+Poweshiek County's college town,
+Grinnell — the finest around.
 
 [Chorus]
-Grinnell, Grinnell, Pioneer spirit bold,
-Poweshiek County's story being told,
-Grinnell, Grinnell, progressive and free,
-Grinnell — just wait and see.
+Grinnell, Grinnell, college and town,
+Where the intellectual spirit's found,
+The Pioneer Hook emblem shining true,
+Grinnell — we believe in you!
 
 [Bridge]
-Small-town Iowa with a world-class mind,
-Grinnell — one of a kind,
-Scholarship and community in one embrace,
-Grinnell — Iowa's treasure place.
+Josiah Bushnell Grinnell's vision so grand,
+A town where all can understand,
+Progressive roots from the Underground Railroad,
+Grinnell — a story still untold.
 
 [Final Chorus]
-Grinnell, Grinnell, Pioneer spirit bold,
-Poweshiek County's story being told,
-Grinnell, Grinnell, proud to the end,
-Grinnell — our friend!
+Grinnell, Grinnell, standing proud,
+Sing it clear and sing it loud,
+Poweshiek County's academic light,
+Grinnell — burning bright!
 
 [Outro]
-Grinnell — Pioneer proud, forever progressive.
+Grinnell, Iowa, college and community too,
+Pioneer spirit strong and true,
+Progressive heart on the prairie floor,
+Grinnell — forevermore!
 
 ---
 

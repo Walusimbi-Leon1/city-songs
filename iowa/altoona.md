@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Pop Rock
-**Mood:** Fun, Exciting, Family-Oriented
-**Suno Tags:** [Style of Music: pop rock, fun, exciting, family-oriented, bright guitars, energetic beat, Iowa entertainment hub pride]
+**Genre:** Fun Pop-Rock
+**Mood:** Exciting, Family-Friendly, Vibrant
+**Suno Tags:** [Style of Music: Fun pop-rock, catchy hooks, upbeat tempo, family-friendly energy]
 
 [Intro tag]
 Altoona — Iowa's entertainment capital!
 
 [Verse 1]
-Adventureland Park where the roller coasters fly,
-Altoona lighting up the Iowa sky,
- Prairie Meadows Casino on a Saturday night,
- Altoona's bringing pure delight,
-Bass Pro Shop where the outdoors call,
-Altoona — having a ball.
+Adventureland Park on a summer day,
+Altouna where the children play,
+PrarieMeadows thundering with the race,
+Altoona — what a place!
 
 [Pre-Chorus]
-Polk County's playground, east of DSM,
-Altoona's making memories for them.
+Polk County's playground calling loud,
+Altoona — making us proud.
 
 [Chorus]
-Altoona, Altoona, fun never stops,
-Iowa's playground where the excitement pops,
-Altoona, Altoona, ride the high,
-Altoona's reaching for the sky.
+Altoona, Altoona, fun all day,
+The Iowa State Fair just a short way,
+Adventureland calling from the rides,
+Altoona — opening wide!
 
 [Verse 2]
-Altoona Aquatic Center splashing in the sun,
-Eighth Street Trail where the cyclists run,
-Walmart distribution humming through the night,
-Altoona's future shining bright,
-Easter Lake Park on a quiet morning walk,
-Altoona — you're the talk.
+The Altoona Public Library's a hub of cheer,
+Buffalo Creek winding clear,
+A city on the rise with so much to do,
+Altoona — exciting through and through.
 
 [Pre-Chorus]
-Polk County's playground, east of DSM,
-Altoona's making memories for them.
+Polk County's playground calling loud,
+Altoona — making us proud.
 
 [Chorus]
-Altoona, Altoona, fun never stops,
-Iowa's playground where the excitement pops,
-Altoona, Altoona, ride the high,
-Altoona's reaching for the sky.
+Altoona, Altoona, fun all day,
+The Iowa State Fair just a short way,
+Adventureland calling from the rides,
+Altoona — opening wide!
 
 [Bridge]
-From railroad stop to a theme park town,
-Altoona's worn the growth crown,
-Tracks to thrills, that's the Altoona way,
-Iowa's fun capital every day.
+From railroad roots to roller coasters bright,
+Altoona keeps on getting it right,
+Family fun and community spirit strong,
+Altoona — we're singing our song.
 
 [Final Chorus]
-Altoona, Altoona, fun never stops,
-Iowa's playground where the excitement pops,
-Altoona, Altoona, one more ride,
-Altoona — Iowa's pride!
+Altoona, Altoona, standing tall,
+Answering entertainment's call,
+Polk County's gem, shining bright,
+Altoona — what a sight!
 
 [Outro]
-Altoona — fun capital, always exciting.
+Altoona, Iowa, fun and games,
+Adventureland's exciting claims,
+Just east of Des Moines, standing proud,
+Altouna — singing clear and loud!
 
 ---
 

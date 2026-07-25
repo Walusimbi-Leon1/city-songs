@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Smooth Pop
-**Mood:** Bright, Family-Friendly, Aspirational
-**Suno Tags:** [Style of Music: smooth pop, bright, family-friendly, aspirational, warm vocals, gentle rhythm, Iowa suburban community pride]
+**Genre:** Feel-Good Pop
+**Mood:** Cheerful, Family-Oriented, Warm
+**Suno Tags:** [Style of Music: Feel-good pop, bright melody, warm vocals, family-friendly energy]
 
 [Intro tag]
-Urbandale — where families thrive and dreams take flight!
+Urbandale — small-town heart, big-city spark!
 
 [Verse 1]
-Sherwood Forest Park where the children play,
-Urbandale Aquatic Center on a summer day,
-Historic Valley Junction just a stone's throw near,
-The living room of Iowa, warm and clear,
-Salisbury Oaks and Walnut Creek trails,
-Urbandale — where the family prevails.
+Between Des Moines and Waukee, a garden grows,
+Urbandale, where the contentment shows,
+The Urbandale Public Library's a palace of dreams,
+Nothing's ever quite what it seems.
 
 [Pre-Chorus]
-A place to grow, a place to be,
-Urbandale is where you're meant to be.
+A community designed for all,
+Urbandale, standing ten feet tall.
 
 [Chorus]
-Urbandale, Urbandale, home sweet home,
-In this Polk County place we've grown,
-Urbandale, Urbandale, shining every day,
-This is where our hearts will stay.
+Urbandale, Urbandale, city of the sun,
+The best little city beneath the sun,
+Brenton Arboretum, nature's art,
+Urbandale — right from the start!
 
 [Verse 2]
-Meadowlark Golf Course under Iowa skies,
-Urbandale High Arrows reaching for the prize,
-Living History Farms just down the road,
-Agricultural heritage lightening the load,
-80/35 music just a mile away,
-Urbandale's living life its own way.
+Marshalltown and Urbandale share a vision bright,
+A vision for tomorrow shining light,
+Walnut Creek winding through the green,
+Urbandale — the finest you've seen.
 
 [Pre-Chorus]
-A place to grow, a place to be,
-Urbandale is where you're meant to be.
+A community designed for all,
+Urbandale, standing ten feet tall.
 
 [Chorus]
-Urbandale, Urbandale, home sweet home,
-In this Polk County place we've grown,
-Urbandale, Urbandale, shining every day,
-This is where our hearts will stay.
+Urbandale, Urbandale, city of the sun,
+The best little city beneath the sun,
+Brenton Arboretum, nature's art,
+Urbandale — right from the start!
 
 [Bridge]
-From farmland to neighborhoods so neat,
-Urbandale makes the heartland beat,
-Community, kindness, corner to corner,
-Urbandale — Iowa's shining runner.
+Prairie flowers and neighborhood streets,
+The sound of children's laughter repeats,
+Urbandale, where the American dream comes true,
+Urbandale — we believe in you.
 
 [Final Chorus]
-Urbandale, Urbandale, home sweet home,
-In this Polk County place we've grown,
-Urbandale, Urbandale, one more time around,
-Best little city to be found!
+Urbandale, Urbandale, pride of the west,
+Putting every other city to the test,
+A hometown feel with a world to explore,
+Urbandale — forever more!
 
 [Outro]
-Urbandale — family-first, forever home.
+Urbandale, Iowa, shining bright,
+A community that feels so right,
+Prairie roots and suburban grace,
+Urbandale — our favorite place!
 
 ---
 

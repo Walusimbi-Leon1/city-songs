@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Heartland
-**Mood:** Resilient, Community-Focused, Proud
-**Snoo Tags:** [Style of Music: country heartland, resilient, community-focused, proud, steel guitar, acoustic strum, Iowa Hamilton County pride]
+**Genre:** Heartland Pop
+**Mood:** Proud, Industrious, Community-Spirited
+**Suno Tags:** [Style of Music: Heartland pop, warm melody, community spirit, industrious energy]
 
 [Intro tag]
-Webster City — Hamilton County's resilient heart!
+Webster City — Hamilton County's proud capital!
 
 [Verse 1]
-Boone River winding through our town,
-Webster City — Hamilton County's crown,
-Kroehler Manufacturing once made furniture here,
-Webster City — still holding dear,
-Syracuse Lake Trail on a summer morning bright,
-Webster City — burning light.
+The Boone River flowing through the town,
+Webster City, Iowa, standing strong and sound,
+The Webster County Fairgrounds filled with cheer,
+Webster City — always here.
 
 [Pre-Chorus]
-Hamilton County proud, resilient and true,
-Webster City — we belong to you.
+Hamilton County's capital so grand,
+Webster City — Iowa's land.
 
 [Chorus]
-Webster City, Webster City, river town strong,
-Hamilton County singing this song,
-Webster City, Webster City, proud and free,
-Webster City — for you and me.
+Webster City, Webster City, standing tall,
+Proud to give our very all,
+The Boone River and the downtown square,
+Webster City — beyond compare!
 
 [Verse 2]
-Webster County Courthouse — oh wait, that's FD,
-Webster City's Hamilton through and through, you see,
-Webster City High Cyclones on the field,
-North Iowa's pride in every yield,
-Community Park where the families gather round,
-Webster City — the best in town.
+The Webster City Public Library gleams,
+Briggs Woods along the river streams,
+A small city with a giant heart,
+Webster City — where the stories start.
 
 [Pre-Chorus]
-Hamilton County proud, resilient and true,
-Webster City — we belong to you.
+Hamilton County's capital so grand,
+Webster City — Iowa's land.
 
 [Chorus]
-Webster City, Webster City, river town strong,
-Hamilton County singing this song,
-Webster City, Webster City, proud and free,
-Webster City — for you and me.
+Webster City, Webster City, standing tall,
+Proud to give our very all,
+The Boone River and the downtown square,
+Webster City — beyond compare!
 
 [Bridge]
-Small-town Iowa with a fighting spirit,
-Webster City — we won't fear it,
-Boone River strong, community tight,
-Webster City — hold on tight.
+Industrial roots run deep and true,
+Webster City — tried and new,
+Boone River rapids and a prairie view,
+Webster City — we believe in you.
 
 [Final Chorus]
-Webster City, Webster City, river town strong,
-Hamilton County singing this song,
-Webster City, Webster City, loud and proud,
-Webster City — singing out loud!
+Webster City, Webster City, heart of gold,
+Hamilton County's story to be told,
+Prairie pride and river song,
+Webster City — carrying on!
 
 [Outro]
-Webster City — resilient proud, always Hamilton County.
+Webster City, Iowa, standing free,
+Hamilton County's legacy,
+Boone River flows and the future's bright,
+Webster City — with all our might!
 
 ---
 

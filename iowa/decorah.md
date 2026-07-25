@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Celtic/Indie Folk
-**Mood:** Nordic, Scenic, Cultural
-**Snoo Tags:** [Style of Music: celtic indie folk, nordic, scenic, cultural, fiddle and accordion, storytelling vocals, Iowa Driftless Region pride]
+**Genre:** Nordic-Inspired Folk
+**Mood:** Scenic, Cultural, Proud
+**Suno Tags:** [Style of Music: Nordic-inspired folk, fiddle and accordion, scenic beauty, cultural pride]
 
 [Intro tag]
-Decorah — the heart of the Driftless Region!
+Decorah — where Norwegian heritage meets the bluffs!
 
 [Verse 1]
-Nordic Fest every summer, Norwegian pride,
-Decorah's got that Driftless Region stride,
-Vesterheim Museum — Norwegian heritage gleams,
-Waterfall at Dunning's Spring in our dreams,
-Luther College where the Nordic scholars learn,
-Decorah — where the old world and new world turn.
+The Upper Iowa River carving through the town,
+Decorah, Iowa, wearing the crown,
+The Vesterheim Museum's Norwegian pride,
+Decorah — standing side by side.
 
 [Pre-Chorus]
-Winnesheik County's crown, Driftless and free,
-Decorah — where we want to be.
+Winneshiek County's treasure bright,
+Decorah — a Nordic light.
 
 [Chorus]
-Decorah, Decorah, Nordic heritage strong,
-Driftless Region singing this song,
-Decorah, Decorah, cultural and free,
-Decorah — you're meant to be.
+Decorah, Decorah, bluffs so tall,
+Norwegian heritage for all,
+The Vesterheim Museum and the river's song,
+Decorah — we'll sing along!
 
 [Verse 2]
-Toppling Goliath Brewing pouring gold,
-Angusbowling Green where the stories are told,
-Decorah Fish Hatchery on the trout stream,
-Bluffton Trail connecting the dream,
-Hormel Nature Center's peaceful way,
-Decorah — bright as the Nordic day.
+Luther College on the hill so green,
+The Decorah Eagle Cam's a national scene,
+Dunning's Spring on a summer's day,
+Decorah — the Nordic way.
 
 [Pre-Chorus]
-Winnesheik County's crown, Driftless and free,
-Decorah — where we want to be.
+Winneshiek County's treasure bright,
+Decorah — a Nordic light.
 
 [Chorus]
-Decorah, Decorah, Nordic heritage strong,
-Driftless Region singing this song,
-Decorah, Decorah, cultural and free,
-Decorah — you're meant to be.
+Decorah, Decorah, bluffs so tall,
+Norwegian heritage for all,
+The Vesterheim Museum and the river's song,
+Decorah — we'll sing along!
 
 [Bridge]
-Driftless hills where glaciers never came,
-Decorah's always been the same — unique,
-Norwegian roots and craft beer fame,
-Decorah — remember the name.
+Decorah eagles soaring overhead,
+Nordic roots in every thread,
+Bluffs and rivers and a cultural soul,
+Decorah — more than whole.
 
 [Final Chorus]
-Decorah, Decorah, Nordic heritage strong,
-Driftless Region singing this song,
-Decorah, Decorah, one more cheer,
-Decorah — we hold you dear!
+Decorah, Decorah, standing free,
+Winneshiek County's legacy,
+Norwegian pride and Iowa grace,
+Decorah — a beautiful place!
 
 [Outro]
-Decorah — Nordic proud, Driftless forever.
+Decorah, Iowa, bluffs and birds,
+Nordic heritage in every word,
+Vesterheim's pride and river's flow,
+Decorah — watch us grow!
 
 ---
 

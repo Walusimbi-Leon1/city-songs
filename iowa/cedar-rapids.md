@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Heartland Rock
-**Mood:** Resilient, Warm, Triumphant
-**Suno Tags:** [Style of Music: heartland rock, resilient, warm, powerful vocals, guitar-driven, Iowa pride, comeback spirit]
+**Genre:** Midtempo Rock Anthem
+**Mood:** Resilient, Proud, Warm
+**Suno Tags:** [Style of Music: Midtempo rock anthem, warm guitars, steady drums, sing-along chorus]
 
 [Intro tag]
-Cedar Rapids — the City of Five Seasons — here we come!
+Cedar Rapids — second city, first in heart!
 
 [Verse 1]
-Built on the banks of the Cedar River's flow,
-A city of five seasons with a steady glow,
-Quaker Oats and Collins where the workers stand,
-Floodwaters rose but we held this land,
-NewBo Market bustling with the world's best food,
-Everyneighborhood singing a Cedar Rapids mood.
+The Cedar River runs through everything,
+A city built on what the heart can bring,
+The Theatre Cedar Rapids lights the night,
+A community that always gets it right.
 
 [Pre-Chorus]
-We've been tested, we've been tried,
-But this Iowa city never hides.
+Through the floods we stood, through the storms we grew,
+Cedar Rapids, every dream we dreamed came true.
 
 [Chorus]
-Cedar Rapids, Cedar Rapids, five seasons strong,
-We've been down but we carry on,
-Cedar Rapids, Cedar Rapids, standing in the rain,
-Rising every time, again and again.
+Cedar Rapids, strong and true,
+We're a city made for me and you,
+The NewBo Market, Quadrangle too,
+Cedar Rapids — we're proud of what we do!
 
 [Verse 2]
-The Paramount Theatre lighting up the stage,
-Brucemore mansion turning history's page,
-African American Museum telling every story,
-Thomas Park and Bever Park — local glory,
-Theatre Cedar Rapids putting on a show,
-From the ground up, this is how we grow.
+The Paramount Theatre keeps the music playing,
+The National Czech Museum's way of staying,
+Connected to our roots, our heritage so deep,
+Cedar Rapids, promises we'll keep.
 
 [Pre-Chorus]
-We've been tested, we've been tried,
-But this Iowa city never hides.
+Through the floods we stood, through the storms we grew,
+Cedar Rapids, every dream we dreamed came true.
 
 [Chorus]
-Cedar Rapids, Cedar Rapids, five seasons strong,
-We've been down but we carry on,
-Cedar Rapids, Cedar Rapids, standing in the rain,
-Rising every time, again and again.
+Cedar Rapids, strong and true,
+We're a city made for me and you,
+The NewBo Market, Quadrangle too,
+Cedar Rapids — we're proud of what we do!
 
 [Bridge]
-Two thousand eight, the water came,
-But the spirit of this city rose above the pain,
-Neighbors helping neighbors, brick by brick,
-Cedar Rapids — you can't break this mix.
+Colectivo Coffee on a Sunday morning light,
+Bicycle trails along the river bright,
+From the Paramount to every neighborhood,
+Cedar Rapids fills us up with good.
 
 [Final Chorus]
-Cedar Rapids, Cedar Rapids, five seasons strong,
-We've been down but we carry on,
-Cedar Rapids, Cedar Rapids, forever unbroken,
-Every word of pride, left unspoken!
+Cedar Rapids, strong and true,
+Rising up in every hue,
+A city that will carry through,
+Cedar Rapids — we're proud, through and through!
 
 [Outro]
-Cedar Rapids — five seasons, one heartbeat, forever strong.
+Cedar Rapids, River City name,
+Forever burning bright with flame,
+Second city? We're the one,
+Cedar Rapids — second to none!
 
 ---
 

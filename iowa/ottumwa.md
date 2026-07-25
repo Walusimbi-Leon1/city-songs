@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Classic Rock
-**Mood:** Nostalgic, Tough, Proud
-**Suno Tags:** [Style of Music: classic rock, nostalgic, tough, proud, heavy guitar riffs, driving drums, Iowa River city grit]
+**Genre:** Country Pop
+**Mood:** Warm, Proud, River-Town Spirit
+**Suno Tags:** [Style of Music: Country pop, warm harmonies, heartland pride, sing-along chorus]
 
 [Intro tag]
-Ottumwa — the heart of the Heartland!
+Ottumwa — where the Des Moines River meets heart!
 
 [Verse 1]
-Des Moines River running through our veins,
-Ottumwa's been through the sunshine and the rains,
-The Bridges of Madison County just down the road,
-Heartland pride in every heavy load,
-George M. Verity Museum docked in town,
-Steamboat history — never backing down.
+The Des Moines River curving through the town,
+Ottumwa, where our hearts are found,
+CBridge Bridge connecting east to west,
+Ottumwa — put to the test.
 
 [Pre-Chorus]
-Wapello County strong, generation after generation,
-Ottumwa — a standing ovation.
+Wapello County's proudest place,
+Ottumwa shining full of grace.
 
 [Chorus]
-Ottumwa, Ottumwa, heart of the Heartland,
-Working hard with calloused hand,
-Ottumwa, Ottumwa, never looking back,
-Iowa tough on every track.
+Ottumwa, Ottumwa, river and town,
+The finest city around,
+The Ottumwa Waterworks Park so grand,
+Ottumwa — Iowa's land!
 
 [Verse 2]
-Swinging Bridge on a summer night,
-Ottumwa Aquatic Center shining bright,
-Indian Hills Community College on the hill,
-Cyrus Noble's — drinks with a thrill,
-Mark Twain's riverboat days in our blood,
-Ottumwa — rising through the mud.
+The Indian Hills Community College stands,
+An education for all hands,
+The Tama Bridge and the Heartland Bridge too,
+Ottumwa — we believe in you.
 
 [Pre-Chorus]
-Wapello County strong, generation after generation,
-Ottumwa — a standing ovation.
+Wapello County's proudest place,
+Ottumwa shining full of grace.
 
 [Chorus]
-Ottumwa, Ottumwa, heart of the Heartland,
-Working hard with calloused hand,
-Ottumwa, Ottumwa, never looking back,
-Iowa tough on every track.
+Ottumwa, Ottumwa, river and town,
+The finest city around,
+The Ottumwa Waterworks Park so grand,
+Ottumwa — Iowa's land!
 
 [Bridge]
-Coal mines and railroads built this town,
-Ottumwa never wore a frown,
-Tough as nails, warm as pie,
-Ottumwa — you'll never say goodbye.
+Burlington Northern railroad's home,
+Ottumwa's heritage has always shone,
+From the packinghouse past to a better day,
+Ottumwa — leading the way.
 
 [Final Chorus]
-Ottumwa, Ottumwa, heart of the Heartland,
-Working hard with calloused hand,
-Ottumwa, Ottumwa, proud as can be,
-Ottumwa — for eternity!
+Ottumwa, Ottumwa, standing tall,
+Proud to answer when duty calls,
+Wapello County's beating heart,
+Ottumwa — never apart!
 
 [Outro]
-Ottumwa — heartland tough, always proud.
+Ottumwa, Iowa, river and pride,
+Standing strong on the riverside,
+Des Moines River's gentle song,
+Ottumwa — where we all belong!
 
 ---
 

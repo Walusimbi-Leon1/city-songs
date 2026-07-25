@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Indie Folk/Pop
-**Mood:** Intellectual, Creative, Warm
-**Suno Tags:** [Style of Music: indie folk pop, intellectual, creative, warm acoustic, literary, Iowa City UNESCO City of Literature pride]
+**Genre:** Indie Folk-Pop
+**Mood:** Intellectual, Creative, Inspiring
+**Suno Tags:** [Style of Music: Indie folk-pop, acoustic guitar, gentle piano, literary feel, warm vocals]
 
 [Intro tag]
-Iowa City — UNESCO City of Literature — hear our words!
+Iowa City — where words come alive and minds take flight!
 
 [Verse 1]
-Home of the Hawkeyes where the black and gold fly,
-Pedestrian Mall under an Iowa sky,
-Writers' Workshop where the great ones came,
-Toni Morrison, Raymond Carver — changed the game,
-Prairie Lights bookstore glowing late at night,
-Every page and poem burning bright.
+A City of Literature beneath the oaks,
+Where every page the imagination provokes,
+The Ped Mall buzzing with a creative glow,
+Iowa City's where the wild ideas grow.
 
 [Pre-Chorus]
-A city of words, a city of art,
-Iowa City's got a literary heart.
+Hawkeyes on Saturdays, books on Sundays too,
+Iowa City, we belong to you.
 
 [Chorus]
-Iowa City, Iowa City, words on every wall,
-We're the City of Literature standing tall,
-Iowa City, Iowa City, creative and free,
-This is where the stories want to be.
+Iowa City, City of Words,
+Where the songs of a thousand minds are heard,
+The Pentacrest glowing under every sky,
+Iowa City, we'll reach up high!
 
 [Verse 2]
-Kinnick Stadium roaring on a fall Saturday,
-Amana Colonies just a drive away,
-The Foxhead Bar where the students meet,
-Film scene thriving on every street,
-Dubuque Street leading up the hill,
-Iowa City's writing its own thrill.
+The Iowa River winding through the green,
+Prairie Lights bookshop — a sacred scene,
+The Coralville Reservoir just minutes away,
+Iowa City, we're ready to play.
 
 [Pre-Chorus]
-A city of words, a city of art,
-Iowa City's got a literary heart.
+Hawkeyes on Saturdays, books on Sundays too,
+Iowa City, we belong to you.
 
 [Chorus]
-Iowa City, Iowa City, words on every wall,
-We're the City of Literature standing tall,
-Iowa City, Iowa City, creative and free,
-This is where the stories want to be.
+Iowa City, City of Words,
+Where the songs of a thousand minds are heard,
+The Pentacrest glowing under every sky,
+Iowa City, we'll reach up high!
 
 [Bridge]
-UNESCO recognized what we always knew,
-Every sidewalk here has a point of view,
-From the Old Capitol dome to the bookshop door,
-Iowa City is an open book — and more.
+Writers, dreamers, teachers all,
+Heard before and after every fall,
+The Writing Workshop forged in this place,
+Iowa City — giving voice and grace.
 
 [Final Chorus]
-Iowa City, Iowa City, words on every wall,
-We're the City of Literature standing tall,
-Iowa City, Iowa City, proud to the core,
-This town is who we're writing for!
+Iowa City, City of Words,
+A thousand voices, all are heard,
+From the Pentacrest to the river bend,
+Iowa City, we'll sing until the end!
 
 [Outro]
-Iowa City — every word a celebration.
+City of Literature, city of light,
+Iowa City burning ever bright,
+Where the mind meets the heart as one,
+Iowa City — the writing's never done!
 
 ---
 

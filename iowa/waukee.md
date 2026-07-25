@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country Pop
-**Mood:** Bright, Growing, Optimistic
-**Snoo Tags:** [Style of Music: country pop, bright, growing, optimistic, acoustic guitar, cheerful vocals, Iowa fast-growing city pride]
+**Genre:** Upbeat Pop-Rock
+**Mood:** Energetic, Growing, Optimistic
+**Suno Tags:** [Style of Music: Upbeat pop-rock, driving beat, bright guitars, energetic chorus]
 
 [Intro tag]
-Waukee — Dallas County's rising star!
+Waukee — the future is ours!
 
 [Verse 1]
-Raccoon River trail where the cyclists glide,
-Waukee's growing with an Iowa pride,
-Centennial Park where the families meet,
-Prairie View Park on a summer street,
-Waukee Northpoint Campus on the rise,
-Dallas County's jewel before your eyes.
+Just west of Des Moines, the future's taking hold,
+Waukee, a story yet untold,
+The Prairie Trail System winding through the land,
+Waukee — let's make a stand.
 
 [Pre-Chorus]
-West of the capital, growing so fast,
-Waukee's future is built to last.
+Dallas County's brightest light,
+Waukee's future burning bright.
 
 [Chorus]
-Waukee, Waukee, Dallas County bright,
-Growing into something just right,
-Waukee, Waukee, full of cheer,
-Waukee — we're glad you're here.
+Waukee, Waukee, on the rise,
+Beneath the Iowa blue skies,
+Briggs Woods Park and the Raccoon too,
+Waukee — we believe in you!
 
 [Verse 2]
-The Triangle District buzzing with new life,
-Waukee High Bulldogs in the Friday night light,
-Kettle Stone Park on an autumn walk,
-Waukee's charm in every talk,
-Centennial Campus for the learning mind,
-Waukee — one of a kind.
+The Waukee Aquatic Center splashing high,
+The Triangle Park under open sky,
+Kum & Go headquarters shining new,
+Waukee — a city breaking through.
 
 [Pre-Chorus]
-West of the capital, growing so fast,
-Waukee's future is built to last.
+Dallas County's brightest light,
+Waukee's future burning bright.
 
 [Chorus]
-Waukee, Waukee, Dallas County bright,
-Growing into something just right,
-Waukee, Waukee, full of cheer,
-Waukee — we're glad you're here.
+Waukee, Waukee, on the rise,
+Beneath the Iowa blue skies,
+Briggs Woods Park and the Raccoon too,
+Waukee — we believe in you!
 
 [Bridge]
-From railroad stop to bedroom community,
-Waukee's become a unity,
-New families, new schools, new dreams,
-Waukee — bursting at the seams.
+From a tiny town to a major player,
+Waukee's growing bigger, stronger, greater,
+New neighborhoods and schools arise,
+Waukee — reaching for the skies.
 
 [Final Chorus]
-Waukee, Waukee, Dallas County bright,
-Growing into something just right,
-Waukee, Waukee, loud and true,
-Waukee — we love you!
+Waukee, Waukee, standing tall,
+Proud to give our very all,
+Dallas County's gem so bright,
+Waukee — burning light!
 
 [Outro]
-Waukee — Dallas County proud, forever growing.
+Waukee, Iowa, young and bold,
+Growing stories yet untold,
+Prairie roots and a modern touch,
+Waukee — we're loving it so much!
 
 ---
 

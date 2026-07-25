@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Americana
-**Mood:** Heartland-Strong, Agricultural, Diverse
-**Snoo Tags:** [Style of Music: country americana, heartland-strong, agricultural, diverse, twangy guitar, fiddle, Iowa farming community pride]
+**Genre:** Heartland Country
+**Mood:** Diverse, Proud, Agricultural
+**Suno Tags:** [Style of Music: Heartland country, diverse influences, agricultural pride, warm chorus]
 
 [Intro tag]
-Denison — Crawford County's heart and home!
+Denison — where the prairie meets diversity!
 
 [Verse 1]
-Crawford County seat where the cornfields grow,
-Denison — a place we know,
-Hawkeye Point, the highest in the state,
-Denison's at the top — never second-rate,
-Denison Community College on the east side,
-Prairie heritage in every stride.
+Crawford County's capital, standing tall,
+Denison, Iowa, giving our all,
+The Denison Public Library's a community place,
+Denison — Iowa's grace.
 
 [Pre-Chorus]
-Crawford County heart, farming strong,
-Denison's been here all along.
+Crawford County's heart and soul,
+Denison — making us whole.
 
 [Chorus]
-Denison, Denison, heart of the county,
-Crawford County pride in every bounty,
-Denison, Denison, strong and true,
-Denison — we belong to you.
+Denison, Denison, prairie town strong,
+Diversity and heart belong,
+The Crawford County Fair on a summer's night,
+Denison — a beautiful sight!
 
 [Verse 2]
-Diverse and growing, every culture bright,
-Denison's welcoming with all its might,
-Baldy Park on a summer afternoon,
-Veterans Memorial under the harvest moon,
-Denison High Tigers playing with heart,
-Crawford County pride from the very start.
+The Denison Aquatic Center splashing free,
+The Crawford County Courthouse history,
+A diverse community along the railroad line,
+Denison — everything's fine.
 
 [Pre-Chorus]
-Crawford County heart, farming strong,
-Denison's been here all along.
+Crawford County's capital, standing tall,
+Denison, Iowa, giving our all.
 
 [Chorus]
-Denison, Denison, heart of the county,
-Crawford County pride in every bounty,
-Denison, Denison, strong and true,
-Denison — we belong to you.
+Denison, Denison, prairie town strong,
+Diversity and heart belong,
+The Crawford County Fair on a summer's night,
+Denison — a beautiful sight!
 
 [Bridge]
-Hog Country and cornfield gold,
-Denison — a story to be told,
-Iowa's highest point and the bravest souls,
-Denison — worth its weight in coals.
+Different cultures, one community,
+Denison's spirit runs deep and free,
+Prairie winds and people who care,
+Denison — beyond compare.
 
 [Final Chorus]
-Denison, Denison, heart of the county,
-Crawford County pride in every bounty,
-Denison, Denison, raise it high,
-Denison under the Iowa sky!
+Denison, Denison, standing proud,
+Sing it clear and sing it loud,
+Crawford County's finest light,
+Denison — burning bright!
 
 [Outro]
-Denison — Crawford County proud, always.
+Denison, Iowa, prairie pride,
+Diversity walking side by side,
+Crawford County's capital song,
+Denison — carrying on!
 
 ---
 

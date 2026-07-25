@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Folk/Country
-**Mood:** Festival-Ready, Quaint, Proud
-**Snoo Tags:** [Style of Music: folk country, festival-ready, quaint, proud, acoustic strum, storytelling, Iowa county seat pride]
+**Genre:** Uptempo Country
+**Mood:** Spirited, Academic, Proud
+**Suno Tags:** [Style of Music: Uptempo country, fiddle and steel, spirited vocals, hometown pride]
 
 [Intro tag]
-Indianola — Simpson County's crown jewel!
+Indianola — home of the Red & White and the Balloon Festival!
 
 [Verse 1]
-National Balloon Classic filling up the sky,
-Indianola under the Iowa high,
-Simpson College where the Colts all play,
-Buxton Park on a summer day,
-Indianola City Park under the balloon glow,
-Indianola — let the colors show.
+Simpson College and the Red and White,
+Indianola burning bright,
+The National Balloon Classic fills the sky,
+Indianola reaching up high.
 
 [Pre-Chorus]
-Balloon capital, that's our claim,
-Indianola loves its name.
+Warren County's capital at its best,
+Indianola — put to the test.
 
 [Chorus]
-Indianola, Indianola, balloons in the sky,
-Simpson County pride way up high,
-Indianola, Indianola, colorful and bright,
-Indianola — what a sight.
+Indianola, Indianola, painting the sky,
+Hot air balloons floating high,
+Simpson College and the marching band,
+Indianola — Iowa's land!
 
 [Verse 2]
-The Des Moines County seat with charm,
-Indianolans keeping the community warm,
-Indianola High Tiger football games,
-Heritage Museum keeping history's names,
-Lakewood Park by the lake's edge,
-Indianola's been here all along the ledge.
+The Indianola Public Library calls,
+Bixby Park and its city walls,
+The Warren County Courthouse standing tall,
+Indianola — giving our all.
 
 [Pre-Chorus]
-Balloon capital, that's our claim,
-Indianola loves its name.
+Warren County's capital at its best,
+Indianola — put to the test.
 
 [Chorus]
-Indianola, Indianola, balloons in the sky,
-Simpson County pride way up high,
-Indianola, Indianola, colorful and bright,
-Indianola — what a sight.
+Indianola, Indianola, painting the sky,
+Hot air balloons floating high,
+Simpson College and the marching band,
+Indianola — Iowa's land!
 
 [Bridge]
-Nineteen hundred balloons rise from this ground,
-Indianola's where the wonder's found,
-Small town, big dreams, hot air flight,
-Indianola — pure delight.
+The Balloon Classic every summer's crown,
+Color filling the Indianola town,
+From the Simpson College campus to the open field,
+Indianola's dreams are revealed.
 
 [Final Chorus]
-Indianola, Indianola, balloons in the sky,
-Simpson County pride way up high,
-Indianola, Indianola, one more time we soar,
-Indianola — forevermore!
+Indianola, Indianola, proud and true,
+Red and White through and through,
+Warren County's gem so bright,
+Indianola — burning light!
 
 [Outro]
-Indianola — balloon capital, forever colorful.
+Indianola, Iowa, balloons above,
+Filled with college town love,
+Simpson College, Balloon Classic too,
+Indianola — we're proud of you!
 
 ---
 

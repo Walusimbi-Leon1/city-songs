@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** New Age/World Music Fusion
-**Mood:** Spiritual, Creative, Free-Spirited
-**Snoo Tags:** [Style of Music: new age world music fusion, spiritual, creative, free-spirited, sitar and guitar, meditation vocals, Iowa Transcendental Meditation town pride]
+**Genre:** Spiritual Pop
+**Mood:** Peaceful, Creative, Unique
+**Suno Tags:** [Style of Music: Spiritual pop, meditative feel, creative energy, peaceful vibes]
 
 [Intro tag]
-Fairfield — where the soul meets the prairie!
+Fairfield — where Maharishi meets the prairie!
 
 [Verse 1]
-Maharishi University of Management in this town,
-Fairfield — where the spiritual light shines down,
-Transcendental Meditation on the rolling hills,
-Fairfield — where the spirit thrills,
-Sullivan Brothers Casino shining at night,
-Fairfield — a transcendent sight.
+Fairfield, Iowa, where the transcendental flows,
+A city where the Maharishi's garden grows,
+The Bnęła College of VEDIC Studies stands tall,
+Fairfield — beyond the wall.
 
 [Pre-Chorus]
-Jefferson County soul, free and wide,
-Fairfield — with nothing to hide.
+Jefferson County's unique gem,
+Fairfield — a creative diadem.
 
 [Chorus]
-Fairfield, Fairfield, spirit and soul,
-Jefferson County making us whole,
 Fairfield, Fairfield, peaceful and free,
-Fairfield — where we want to be.
+The most unique city in Iowa we see,
+The Maharishi campus beneath the sky,
+Fairfield — we'll reach up high!
 
 [Verse 2]
-Fairfield Arts Centre hosting every show,
-Lakewood Park where the wildflowers grow,
-Paragon 6 Theater on a Friday night,
-Fairfield's downtown burning bright,
-Round Prairie Heritage Park on a stroll,
-Fairfield — with heart and soul.
+The Fairfield Cultural District's artsy scene,
+The Fairfield Art Walk on a Saturday mean,
+The Sondheim Center for the Arts so bright,
+Fairfield — a wonderful sight.
 
 [Pre-Chorus]
-Jefferson County soul, free and wide,
-Fairfield — with nothing to hide.
+Jefferson County's unique gem,
+Fairfield — a creative diadem.
 
 [Chorus]
-Fairfield, Fairfield, spirit and soul,
-Jefferson County making us whole,
 Fairfield, Fairfield, peaceful and free,
-Fairfield — where we want to be.
+The most unique city in Iowa we see,
+The Maharishi campus beneath the sky,
+Fairfield — we'll reach up high!
 
 [Bridge]
-From prairie town to a global stage,
-Fairfield's written on every page,
-TM capital, diverse and bold,
-Fairfield — a story untold.
+Twin Cities — Fairfield and Vedic too,
+A community that's tried and true,
+Meditation and creativity,
+Fairfield — pure vitality.
 
 [Final Chorus]
-Fairfield, Fairfield, spirit and soul,
-Jefferson County making us whole,
-Fairfield, Fairfield, peaceful and bright,
-Fairfield — inner light!
+Fairfield, Fairfield, standing proud,
+A city singing clear and loud,
+Jefferson County's shining star,
+Fairfield — near and far!
 
 [Outro]
-Fairfield — spiritual proud, forever free.
+Fairfield, Iowa, peace and art,
+A city set apart,
+Maharishi's vision, Fairfield's soul,
+Fairfield — making all things whole!
 
 ---
 

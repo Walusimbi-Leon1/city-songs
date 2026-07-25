@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Celtic/Folk Rock
-**Mood:** Historic, Majestic, Enduring
-**Suno Tags:** [Style of Music: celtic folk rock, historic, majestic, enduring, accordion and fiddle, powerful vocals, Iowa river city pride]
+**Genre:** Sweeping Cinematic Pop
+**Mood:** Majestic, Historic, Inspiring
+**Suno Tags:** [Style of Music: Cinematic pop, sweeping strings, emotional build, majestic chorus]
 
 [Intro tag]
-Dubuque — Iowa's oldest city — hear our story!
+Dubuque — Iowa's first city, the Jewel of the Mississippi!
 
 [Verse 1]
-Julien Dubuque came here in seventeen eighty-eight,
-The oldest city in Iowa, standing at fate's gate,
-Mississippi bluffs rising like a crown,
-Eagle Point Park looking down on town,
-Cathedral of the Regina reaching to the sky,
-This river city will never say goodbye.
+Julien Dubuque quarried lead along the shore,
+A city built before the Civil War,
+The National Mississippi River Museum stands tall,
+Dubuque — we'll give our all.
 
 [Pre-Chorus]
-Bluff City strong through the centuries long,
-Dubuque has always carried the song.
+Bluff City on the river's edge,
+Dubuque has nothing left to pledge.
 
 [Chorus]
-Dubuque, Dubuque, oldest in the land,
-Mississippi River flowing where we stand,
-Dubuque, Dubuque, historic and true,
-We're the Bluff City — through and through.
+Dubuque, Dubuque, Jewel of the West,
+The oldest city, standing the test,
+Fenelon Place Elevator climbing up the hill,
+Dubuque — the spirit's standing still!
 
 [Verse 2]
-National Mississippi River Museum telling our tale,
-Dubuque County Fair on a summer trail,
-Stepping Stones across the flooded plain,
-Shot Tower echoing history's refrain,
-Loras College and the University too,
-Dubuque — we owe it all to you.
+The Port of Dubuque along the water's gleam,
+Loras College and the Filson dream,
+The Mississippi River Museum shining bright,
+Dubuque beneath the fading light.
 
 [Pre-Chorus]
-Bluff City strong through the centuries long,
-Dubuque has always carried the song.
+Bluff City on the river's edge,
+Dubuque has nothing left to pledge.
 
 [Chorus]
-Dubuque, Dubuque, oldest in the land,
-Mississippi River flowing where we stand,
-Dubuque, Dubuque, historic and true,
-We're the Bluff City — through and through.
+Dubuque, Dubuque, Jewel of the West,
+The oldest city, standing the test,
+Fenelon Place Elevator climbing up the hill,
+Dubuque — the spirit's standing still!
 
 [Bridge]
-Lead mines and lumber, immigrants and grit,
-Dubuque has never once quit,
-From Julien's dream to today's delight,
-Bluff City burning ever bright.
+Named for Julien, the French-Canadian man,
+Who saw the promise of this land,
+Bluffs and caves and limestone walls,
+Dubuque, you're the queen of all.
 
 [Final Chorus]
-Dubuque, Dubuque, oldest in the land,
-Mississippi River flowing where we stand,
-Dubuque, Dubuque, raise it to the sky,
-Iowa's oldest city will never die!
+Dubuque, Dubuque, Iowa's oldest gem,
+A city full of pride for them,
+Jewel of the Mississippi's flow,
+Dubuque — forever aglow!
 
 [Outro]
-Dubuque — Bluff City, enduring through the ages.
+Julien's city, Mississippi's shore,
+Dubuque, we'll always want you more,
+First and finest, standing tall,
+Dubuque — the pride of all!
 
 ---
 

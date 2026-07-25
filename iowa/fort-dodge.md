@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Folk
-**Mood:** Rugged, Heritage-Rich, Spirited
-**Suno Tags:** [Style of Music: country folk, rugged, heritage-rich, spirited, banjo and fiddle, warm vocals, Iowa frontier pride]
+**Genre:** Country Rock
+**Mood:** Tough, Proud, Western
+**Suno Tags:** [Style of Music: Country rock, stomping beat, twangy guitars, frontier energy]
 
 [Intro tag]
-Fort Dodge — gateway to the Iowa prairie!
+Fort Dodge — gypsum capital and frontier town!
 
 [Verse 1]
-Named for the old fort on the Des Moines River bank,
-Fort Dodge has got a history to thank,
-Fort Dodge Correctional and the gypsum mines,
-Webster County's backbone through the lines,
-Oleson Park Zoo where the animals play,
-Fort Dodge — a frontier town today.
+Named after General Henry Dodge's fort,
+This town was built with sweat and sport,
+The gypsum mines beneath the prairie floor,
+Fort Dodge, giving always something more.
 
 [Pre-Chorus]
-Webster County grit, from the old fort's ground,
-Fort Dodge — where the pioneers were found.
+Webster County's capital in the west,
+Fort Dodge — put to the test.
 
 [Chorus]
-Fort Dodge, Fort Dodge, frontier town proud,
-Webster County singing loud,
-Fort Dodge, Fort Dodge, standing tall,
-Prairie strong through it all.
+Fort Dodge, Fort Dodge, strong and true,
+Gypsum queen with a western view,
+The Fort Dodge Correctional stands so tall,
+Fort Dodge — giving our all!
 
 [Verse 2]
-The Blanden Art Museum on a quiet street,
-Lizard Creek flowing to the Des Moines beat,
-Fort Dodge Messenger keeping us informed,
-Layton Park where the dreams are formed,
-Kay Park and Recreation in the summer sun,
-Fort Dodge — we're second to none.
+The Blanden Art Museum, culture shines,
+The Fort Dodge Public Library designs,
+Linder Point overlooking the Des Moines,
+Fort Dodge — Iowa's own.
 
 [Pre-Chorus]
-Webster County grit, from the old fort's ground,
-Fort Dodge — where the pioneers were found.
+Webster County's capital in the west,
+Fort Dodge — put to the test.
 
 [Chorus]
-Fort Dodge, Fort Dodge, frontier town proud,
-Webster County singing loud,
-Fort Dodge, Fort Dodge, standing tall,
-Prairie strong through it all.
+Fort Dodge, Fort Dodge, strong and true,
+Gypsum queen with a western view,
+The Fort Dodge Correctional stands so tall,
+Fort Dodge — giving our all!
 
 [Bridge]
-Military outpost to a modern town,
-Fort Dodge has never been run down,
-Gypsum capital, livestock strong,
-Fort Dodge — where we all belong.
+The Dodger Stadium where the athletes play,
+Fort Dodge, shining every day,
+From gypsum rock to the endless sky,
+Fort Dodge — standing high.
 
 [Final Chorus]
-Fort Dodge, Fort Dodge, frontier town proud,
-Webster County singing loud,
-Fort Dodge, Fort Dodge, raise the frontier flag,
-Fort Dodge — on the wagon! (on the brag!)
+Fort Dodge, Fort Dodge, frontier town,
+Never letting the spirit down,
+Webster County's heart and soul,
+Fort Dodge — forever whole!
 
 [Outro]
-Fort Dodge — frontier proud, forever strong.
+Fort Dodge, Iowa, frontier pride,
+Gypsum queen, standing wide,
+Western town with a modern glow,
+Fort Dodge — watch us grow!
 
 ---
 

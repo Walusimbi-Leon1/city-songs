@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Roots Rock
-**Mood:** Agricultural, Strong, Community
-**Snoo Tags:** [Style of Music: country roots rock, agricultural, strong, community, steel guitar, driving beat, Iowa Carroll County pride]
+**Genre:** Country
+**Mood:** Proud, Agricultural, Friendly
+**Suno Tags:** [Style of Music: Traditional country, warm fiddle, agricultural pride, friendly heartland feel]
 
 [Intro tag]
-Carroll — Carroll County's agricultural heart!
+Carroll — Carroll County's proud capital!
 
 [Verse 1]
-Carroll County seat on the Iowa plains,
-Carroll — where the corn grows rains,
-Swan Lake State Park by the water's edge,
-Carroll — where the eagles pledge,
-Karl King Municipal Band in the summer light,
-Carroll — with all our might.
+The Raccoon River running through the green,
+Carroll, Iowa — a prairie scene,
+The Carroll County Fair on a summer's day,
+Carroll — the Iowa way.
 
 [Pre-Chorus]
-Carroll County's heart, agricultural pride,
-Carroll — standing side by side.
+Carroll County's capital shining bright,
+Carroll — burning light.
 
 [Chorus]
-Carroll, Carroll, county seat strong,
-Carroll County singing this song,
-Carroll, Carroll, proud and free,
-Carroll — for you and me.
+Carroll, Carroll, land of gold,
+Where the harvest stories are retold,
+Cattlemen's Park and the courthouse too,
+Carroll — we believe in you!
 
 [Verse 2]
-Carroll Municipal Pool — splash and play,
-Carroll High Tigers on a Friday,
-Antique Alley shops on a Saturday morn,
-Carroll County Fair — newly born,
-Westside Park in the autumn light,
-Carroll — Iowa's delight.
+The Carroll Public Library's a haven of learning,
+Carroll County's heart is yearning,
+The Audubon County line not far away,
+Carroll — always ready to play.
 
 [Pre-Chorus]
-Carroll County's heart, agricultural pride,
-Carroll — standing side by side.
+Carroll County's capital shining bright,
+Carroll — burning light.
 
 [Chorus]
-Carroll, Carroll, county seat strong,
-Carroll County singing this song,
-Carroll, Carroll, proud and free,
-Carroll — for you and me.
+Carroll, Carroll, land of gold,
+Where the harvest stories are retold,
+Cattlemen's Park and the courthouse too,
+Carroll — we believe in you!
 
 [Bridge]
-Karl King's band still plays on,
-Carroll — where the music's been long,
-Agricultural roots and community soul,
-Carroll — making us whole.
+Corn and beans across the rolling land,
+Carroll, where the farmers stand,
+Heartland pride and community grace,
+Carroll — Iowa's finest face.
 
 [Final Chorus]
-Carroll, Carroll, county seat strong,
-Carroll County singing this song,
-Carroll, Carroll, one more time,
-Carroll — doing fine!
+Carroll, Carroll, standing tall,
+Proud to give our very all,
+Carroll County's beating heart,
+Carroll — never apart!
 
 [Outro]
-Carroll — county seat proud, always agricultural.
+Carroll, Iowa, prairie town,
+The finest harvest all around,
+Carroll County's pride and song,
+Carroll — where we all belong!
 
 ---
 

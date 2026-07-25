@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Bluegrass/Old-Time
-**Mood:** Heritage-Proud, Community, Traditional
-**Snoo Tags:** [Style of Music: bluegrass old-time, heritage-proud, community, traditional, banjo, fiddle, harmonica, Iowa small city pride]
+**Genre:** Traditional Country
+**Mood:** Proud, Heritage-Rich, Warm
+**Suno Tags:** [Style of Music: Traditional country, twangy steel guitar, warm vocals, heritage pride]
 
 [Intro tag]
-Oskaloosa — the Heart of Mahaska County!
+Oskaloosa — the Crossroads of Iowa!
 
 [Verse 1]
-Mahaska County seat since the pioneer days,
-Oskaloosa's singing a heritage praise,
-William Penn University on the hill so green,
-Oskaloosa — the prettiest you've seen,
-The George Daily Family Auditorium's stage,
-Oskaloosa — turning history's page.
+Mahaska County's capital standing proud,
+Oskaloosa drawing every crowd,
+William Penn University on the hill,
+Oskaloosa — standing still.
 
 [Pre-Chorus]
-Mahaska County heart, beating so strong,
-Oskaloosa — that's our song.
+Crossroads of Iowa, that's our name,
+Oskaloosa — we're proud of our name.
 
 [Chorus]
-Oskaloosa, Oskaloosa, heritage proud,
-Mahaska County singing loud,
-Oskaloosa, Oskaloosa, standing tall,
-Heart of the county, heart of all.
+Oskaloosa, Oskaloosa, Crossroads town,
+Where the prairie roads all come around,
+The Penn Center and the history square,
+Oskaloosa — beyond compare!
 
 [Verse 2]
-The Oskaloosa Music Hall with its historic doors,
-Lacey-Keosauqua State Park on outdoor tours,
-Oskaloosa Public Library on a quiet street,
-Community spirit can't be beat,
-The Square downtown on a Friday night,
-Oskaloosa's doing it right.
+The Lacey-Keosauqua State Park nearby,
+Oskaloosa reaching for the sky,
+The Mahaska County Courthouse shining tall,
+Oskaloosa — giving our all.
 
 [Pre-Chorus]
-Mahaska County heart, beating so strong,
-Oskaloosa — that's our song.
+Crossroads of Iowa, that's our name,
+Oskaloosa — we're proud of our name.
 
 [Chorus]
-Oskaloosa, Oskaloosa, heritage proud,
-Mahaska County singing loud,
-Oskaloosa, Oskaloosa, standing tall,
-Heart of the county, heart of all.
+Oskaloosa, Oskaloosa, Crossroads town,
+Where the prairie roads all come around,
+The Penn Center and the history square,
+Oskaloosa — beyond compare!
 
 [Bridge]
-Named for an Osage chief's legacy,
-Oskaloosa — that's our history,
-Quaker roots and prairie land,
-Oskaloosa — Iowa's pride, planned.
+Named for the Black Hawk chief of old,
+Oskaloosa, brave and bold,
+William Penn founded on Quaker ground,
+Oskaloosa — the finest town.
 
 [Final Chorus]
-Oskaloosa, Oskaloosa, heritage proud,
-Mahaska County singing loud,
-Oskaloosa, Oskaloosa, loud and clear,
-Oskaloosa — we're right here!
+Oskaloosa, Oskaloosa, standing free,
+Mahaska County's legacy,
+Crossroads city, shining bright,
+Oskaloosa — Iowa's light!
 
 [Outro]
-Oskaloosa — heritage proud, always.
+Oskaloosa, Iowa, Crossroads proud,
+Heritage echoing clear and loud,
+Mahaska County's capital crown,
+Oskaloosa — never backing down!
 
 ---
 

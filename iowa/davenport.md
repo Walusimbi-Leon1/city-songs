@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Blues Rock
-**Mood:** Soulful, Proud, Groovy
-**Suno Tags:** [Style of Music: blues rock, soulful, groovy, Mississippi River energy, powerful vocals, trumpet accents, Iowa Quad Cities pride]
+**Genre:** Classic Rock / Heartland Rock
+**Mood:** Nostalgic, Strong, Spirited
+**Suno Tags:** [Style of Music: Heartland rock, classic guitars, driving rhythm, anthemic chorus]
 
 [Intro tag]
-Davenport on the Mississippi — let's feel it!
+Davenport — proudly Quad Cities!
 
 [Verse 1]
-Mississippi River rolling through our town,
-Davenport standing solid, never backing down,
-LeClaire Park where the river breezes blow,
-The Figge Art Museum putting on a show,
-Vander Veer Botanical Park in bloom so bright,
-Bix Beiderbecke's trumpet cutting through the night.
+On the banks of the Mississippi so wide,
+Davenport stands with historic pride,
+TheFigge Art Museum gleaming on the shore,
+A river city forevermore.
 
 [Pre-Chorus]
-Quad Cities proud, river city too,
-Everything we do, we do it true.
+Quad Cities united, standing tall,
+Davenport answers every call.
 
 [Chorus]
-Davenport, Davenport, Mississippi strong,
-We've been singing this river song all along,
-Davenport, Davenport, rhythm in our veins,
-Nothing but pride running through these plains.
+Davenport, Davenport, queen of the Quad,
+Where the river bends and history trod,
+Bix Beiderbecke played his trumpet song,
+Davenport forever, carrying on!
 
 [Verse 2]
-The Skybridge connects us to Bettendorf's side,
-Adler Theatre where the legends reside,
-Rock Island Arsenal just across the way,
-Bix jazz festival every single day,
-Fejervary Park and the Zoo so grand,
-Davenport's story written in this land.
+The Village of the Arts on Brady Street,
+LeClaire's antiques just can't be beat,
+Vander Veer Botanical Gardens in bloom,
+Davenport fills the room with perfume.
 
 [Pre-Chorus]
-Quad Cities proud, river city too,
-Everything we do, we do it true.
+Quad Cities united, standing tall,
+Davenport answers every call.
 
 [Chorus]
-Davenport, Davenport, Mississippi strong,
-We've been singing this river song all along,
-Davenport, Davenport, rhythm in our veins,
-Nothing but pride running through these plains.
+Davenport, Davenport, queen of the Quad,
+Where the river bends and history trod,
+Bix Beiderbecke played his trumpet song,
+Davenport forever, carrying on!
 
 [Bridge]
-From Scott County roots to the world we face,
-River bend magic in every place,
-Jazz and blues and rock and roll,
-Davenport's got heart and soul.
+Centennial Bridge connecting shore to shore,
+Tama Bridge we're looking for,
+Mississippi Queen beneath the light,
+Davenport, you're a beautiful sight.
 
 [Final Chorus]
-Davenport, Davenport, Mississippi strong,
-We've been singing this river song all along,
-Davenport, Davenport, shout it from the hill,
-This river city's got an iron will!
+Davenport, Davenport, standing strong and proud,
+A river city singing clear and loud,
+From jazz roots to a brighter day,
+Davenport forever — leading the way!
 
 [Outro]
-Davenport — river city, forever flowing strong.
+Davenport, Mississippi's gem,
+We'll always remember where we've been,
+Quad Cities' crown, Iowa's pride,
+Davenport, we're right here by your side!
 
 ---
 

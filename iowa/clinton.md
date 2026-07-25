@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Blues Rock/Roots
-**Mood:** River-Strong, Nostalgic, Tough
-**Suno Tags:** [Style of Music: blues rock roots, river-strong, nostalgic, tough, harmonica and guitar, deep vocals, Iowa Mississippi River pride]
+**Genre:** River Blues Rock
+**Mood:** Gritty, Musical, River-Town Proud
+**Suno Tags:** [Style of Music: River blues rock, harmonica, gritty slide guitar, Mississippi soul]
 
 [Intro tag]
-Clinton — the River City on the Mississippi!
+Clinton — Iowa's River City, always on the move!
 
 [Verse 1]
-Mississippi River barges passing through,
-Clinton's been a lumber town since '32,
-Lumber Baron's row along the bluff,
-Eagle Point Park — we've had enough,
-Clinton County Fair on a summer night,
-Clinton — we're the River City, burning bright.
+The Mississippi rolling past our shore,
+Clinton, Iowa wanting something more,
+The Clinton Lumber Kings playing ball downtown,
+A river town that never backs down.
 
 [Pre-Chorus]
-Lumber and iron, river and rail,
-Clinton's got a mighty sail.
+Clinton County's beating heart right here,
+Clinton — we hold our history dear.
 
 [Chorus]
-Clinton, Clinton, River City strong,
-Mississippi carries our song,
-Clinton, Clinton, tough and true,
-The River City's built for you.
+Clinton, Clinton, river town strong,
+Mississippi waters carry our song,
+Lumber barons built this city's spine,
+Clinton — forever proud and fine!
 
 [Verse 2]
-Clinton Historical Museum on the shore,
-Wild Cat Den State Park — nature's door,
-Clinton Highmakers playing ball,
-Ashford University answering the call,
-Lyons and Clinton, side by side,
-Mississippi River — our county's pride.
+The Clinton County Courthouse standing proud,
+Eagle Point Park above the cloud,
+Lyon College and its legacy near,
+Clinton — the future's always here.
 
 [Pre-Chorus]
-Lumber and iron, river and rail,
-Clinton's got a mighty sail.
+Clinton County's beating heart right here,
+Clinton — we hold our history dear.
 
 [Chorus]
-Clinton, Clinton, River City strong,
-Mississippi carries our song,
-Clinton, Clinton, tough and true,
-The River City's built for you.
+Clinton, Clinton, river town strong,
+Mississippi waters carry our song,
+Lumber barons built this city's spine,
+Clinton — forever proud and fine!
 
 [Bridge]
-Lumberjacks to modern makers,
-Clinton — Iowa's river shakers,
-From the sawmill to the city hall,
-Clinton's given it its all.
+Bridges connecting Iowa to Illinois,
+The Clinton Riverwalk where the river buoys,
+From the sawmills past to tomorrow's gleam,
+Clinton — a river town dream.
 
 [Final Chorus]
-Clinton, Clinton, River City strong,
-Mississippi carries our song,
-Clinton, Clinton, raise it high,
-River City pride will never die!
+Clinton, Clinton, standing tall,
+River town answering the call,
+Mississippi pride in every soul,
+Clinton — making history whole!
 
 [Outro]
-Clinton — river town, forever tough.
+Clinton, Iowa, Mississippi's shore,
+A lumber town forevermore,
+River City's beating drum,
+Clinton — here we come!
 
 ---
 

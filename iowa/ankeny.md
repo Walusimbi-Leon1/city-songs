@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country Pop
-**Mood:** Bright, Growing, Community-Focused
-**Suno Tags:** [Style of Music: country pop, bright, growing, community-focused, cheerful vocals, acoustic guitar, Iowa fast-growing town pride]
+**Genre:** Upbeat Country-Pop
+**Mood:** Fast-Growing, Excited, Community-Focused
+**Suno Tags:** [Style of Music: Upbeat country-pop, bright guitars, happy tempo, community feel]
 
 [Intro tag]
-Ankeny — one of Iowa's fastest-growing cities!
+Ankeny — the fastest-growing star in Iowa!
 
 [Verse 1]
-North of the capital where the cornfields grow,
-Ankeny's planting seeds and watching the future show,
-Prairie Trail where the families ride,
-Trestle Toast in the morning tide,
-Ankeny Sports Complex cheering on the young,
-This community's heart is forever young.
+Just north of the capital, a city on the rise,
+Ankeny reaching for the skies,
+Prairie Trail where the families roam,
+A community that's calling home.
 
 [Pre-Chorus]
-Small-town roots, big-town dreams,
-Ankeny's bursting at the seams.
+One of the best places to live and play,
+Ankeny's growing every day.
 
 [Chorus]
-Ankeny, Ankeny, growing like a tree,
-Rooted in community, reaching wild and free,
-Ankeny, Ankeny, proud to call it home,
-Ankeny's never gonna leave us alone.
+Ankeny, Ankeny, leading the way,
+The fastest-growing city in the USA,
+From the lakes to the open plains,
+Ankeny — through the sun and rain!
 
 [Verse 2]
-DMACC campus training tomorrow's best,
-Uptown Ankeny where the people rest,
-Swing Golf and Topgolf lighting up the night,
-Ankenyfest bringing pure delight,
-Walnut Creek winding through the green,
-The prettiest Iowa town you've ever seen.
+The Ankeny Aquatic Center splashing joy,
+Southbridge Mall — a girl and boy,
+Prairie Winds Park beneath the summer sun,
+Ankeny — we're the chosen one.
 
 [Pre-Chorus]
-Small-town roots, big-town dreams,
-Ankeny's bursting at the seams.
+One of the best places to live and play,
+Ankeny's growing every day.
 
 [Chorus]
-Ankeny, Ankeny, growing like a tree,
-Rooted in community, reaching wild and free,
-Ankeny, Ankeny, proud to call it home,
-Ankeny's never gonna leave us alone.
+Ankeny, Ankeny, leading the way,
+The fastest-growing city in the USA,
+From the lakes to the open plains,
+Ankeny — through the sun and rain!
 
 [Bridge]
-From railroad days to a modern pace,
-Ankeny keeps finding its place,
-New families, new stories to tell,
-Ankeny's doing it well — oh so well.
+From railroad tracks to modern streets,
+Ankeny with its heartbeat beats,
+New neighborhoods and schools so bright,
+Ankeny — reaching new height.
 
 [Final Chorus]
-Ankeny, Ankeny, growing like a tree,
-Rooted in community, reaching wild and free,
-Ankeny, Ankeny, shout it to the sky,
-Ankeny, Iowa — watch us fly!
+Ankeny, Ankeny, shining like gold,
+The city of stories yet untold,
+Proud of where we've been, where we'll go,
+Ankeny — forever growing!
 
 [Outro]
-Ankeny — growing strong, proud forever.
+Ankeny, Iowa, our pride and joy,
+Our future's bright, no fear, no ploy,
+Just north of Des Moines, standing tall,
+Ankeny — the pride of Polk County all!
 
 ---
 

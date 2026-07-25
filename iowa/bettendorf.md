@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Pop Rock
-**Mood:** Upbeat, Modern, Community-Driven
-**Suno Tags:** [Style of Music: pop rock, upbeat, modern, community-driven, bright vocals, electric guitar, Quad Cities Iowa pride]
+**Genre:** Modern Rock
+**Mood:** Bold, Dynamic, Forward-Looking
+**Suno Tags:** [Style of Music: Modern rock, punchy guitars, driving rhythm, confident vocals]
 
 [Intro tag]
-Bettendorf — where the river meets the dream!
+Bettendorf — Quad Cities' crown jewel!
 
 [Verse 1]
-Quad City Arts bringing culture to the block,
-Bettendorf's got that non-stop rock,
-Isle Casino lighting up the night,
-Crow Bend Park in the morning light,
-Downtown Bettendorf buzzing with new life,
-Riverfront views cutting sharp and tight.
+Mississippi River shimmering at dawn,
+Bettendorf standing proud and strong,
+The Family Museum where the children gleam,
+A Quad Cities' shining dream.
 
 [Pre-Chorus]
-Quad Cities family, Bettendorf strong,
-We've been building all along.
+Quad Cities together, we are one,
+Bettendorf — the race is run.
 
 [Chorus]
-Bettendorf, Bettendorf, river city pride,
-Mississippi flowing deep inside,
-Bettendorf, Bettendorf, standing tall and free,
-This is our community.
+Bettendorf, Bettendorf, bold and free,
+A city built on possibility,
+Crow Creek winding through the land,
+Bettendorf — the future's at hand!
 
 [Verse 2]
-Family Museum where the kids explore,
-Tom Weiskopf Golf Course at the score,
-Grant Wood Art Trail passing through,
-Bettendorf High Trojans breaking through,
-TBK Bank Sports Complex on the east side,
-Bettendorf's got nothing left to hide.
+The TPC Deere Run golf course green,
+Bettendorf's fields of living dream,
+Leach Park along the river's bend,
+Bettendorf — a city without end.
 
 [Pre-Chorus]
-Quad Cities family, Bettendorf strong,
-We've been building all along.
+Quad Cities together, we are one,
+Bettendorf — the race is run.
 
 [Chorus]
-Bettendorf, Bettendorf, river city pride,
-Mississippi flowing deep inside,
-Bettendorf, Bettendorf, standing tall and free,
-This is our community.
+Bettendorf, Bettendorf, bold and free,
+A city built on possibility,
+Crow Creek winding through the land,
+Bettendorf — the future's at hand!
 
 [Bridge]
-From wagon maker's name to a modern city,
-Bettendorf's story is anything but pretty — it's real,
-Heart and hustle, east side glow,
-Bettendorf — let the whole world know.
+From the ironworks to the modern age,
+Bettendorf turning every page,
+LeClaire Road and Middle Road too,
+Bettendorf — we believe in you.
 
 [Final Chorus]
-Bettendorf, Bettendorf, river city pride,
-Mississippi flowing deep inside,
-Bettendorf, Bettendorf, raise it to the sky,
-Quad Cities' gem — watch us fly!
+Bettendorf, Bettendorf, standing tall,
+Mississippi River and all,
+Quad Cities pride, Iowa's best,
+Bettendorf — passing every test!
 
 [Outro]
-Bettendorf — river strong, community proud.
+Bettendorf, Iowa, river bright,
+A city reaching for new heights,
+Quad Cities' star, Mississippi's shore,
+Bettendorf — forevermore!
 
 ---
 

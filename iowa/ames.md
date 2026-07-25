@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Indie Pop/Rock
-**Mood:** Energetic, Academic, Optimistic
-**Suno Tags:** [Style of Music: indie pop rock, energetic, academic, optimistic, bright guitars, youthful energy, Iowa college town pride]
+**Genre:** Bright Indie Pop
+**Mood:** Optimistic, Academic, Youthful
+**Suno Tags:** [Style of Music: Bright indie pop, jangly guitars, optimistic feel, college-town energy]
 
 [Intro tag]
-Ames — Cyclone Country — let's go red!
+Ames — where the future is always being built!
 
 [Verse 1]
-Iowa State University in cardinal and gold,
-Jack Trice Stadium where the legends are told,
-VEISHEA festivals in the springtime air,
-Lincoln Way buzzing everywhere,
-Reiman Gardens where the flowers bloom,
-Ames is the heart of the storybook room.
+Iowa State Cyclones charging on the field,
+Ames, a city where ambitions are revealed,
+Campustown buzzing with an endless energy,
+A college town with identity.
 
 [Pre-Chorus]
-College town magic, small-city soul,
-Ames is making us whole.
+Science, agriculture, and dreams so grand,
+Ames is the future in this land.
 
 [Chorus]
-Ames, Ames, cardinal and gold,
-Cyclone pride that will never grow old,
-Ames, Ames, lifting us high,
-Touch the sky in Ames, Iowa.
+Ames, Ames, city of gold,
+Where the Cyclone spirit never gets old,
+Iowa State and the community thrive,
+Ames, Iowa — come alive!
 
 [Verse 2]
-Bruno's on Main where the students dine,
-Octagon Center for the arts divine,
-Ames Laboratory shaping the future's way,
-ISU research leading every day,
-The Campustown scene on a Saturday night,
-Ames — you make everything feel right.
+The Reiman Gardens blooming year-round,
+The Brunnier Museum where art is found,
+Jack Trice Stadium echoing the roar,
+Ames, we're always wanting more.
 
 [Pre-Chorus]
-College town magic, small-city soul,
-Ames is making us whole.
+Science, agriculture, and dreams so grand,
+Ames is the future in this land.
 
 [Chorus]
-Ames, Ames, cardinal and gold,
-Cyclone pride that will never grow old,
-Ames, Ames, lifting us high,
-Touch the sky in Ames, Iowa.
+Ames, Ames, city of gold,
+Where the Cyclone spirit never gets old,
+Iowa State and the community thrive,
+Ames, Iowa — come alive!
 
 [Bridge]
-From agricultural roots to space and tech,
-Ames is putting Iowa on the map, what's next?
-Land-grant mission, heart and mind,
-The best is always yet to find.
+From the lab to the farmland's edge,
+Ames walks the future's leading edge,
+VEISHEA may have faded from the scene,
+But the spirit lives in every dream.
 
 [Final Chorus]
-Ames, Ames, cardinal and gold,
-Cyclone pride that will never grow old,
-Ames, Ames, stand up and sing,
-Ames, Iowa — everything!
+Ames, Ames, Cyclone blue and gold,
+The best damn story ever told,
+Land-grant heritage, heart so bold,
+Ames forever — never cold!
 
 [Outro]
-Ames — Cyclone proud, forever cardinal and gold.
+Ames, Iowa, city of light,
+ISU shining ever bright,
+Cyclones charging through the night,
+Ames — future's looking right!
 
 ---
 

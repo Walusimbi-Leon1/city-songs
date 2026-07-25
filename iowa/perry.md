@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Railroad Blues
-**Mood:** Railroad Heritage, Working-Class, Proud
-**Snoo Tags:** [Style of Music: country railroad blues, railroad heritage, working-class, proud, harmonica, steel guitar, Iowa Dallas County pride]
+**Genre:** Railroad Folk
+**Mood:** Historic, Proud, Resilient
+**Suno Tags:** [Style of Music: Railroad folk, harmonica and guitar, historic storytelling, resilient spirit]
 
 [Intro tag]
-Perry — Dallas County's railroad town!
+Perry — a railroad town with heart!
 
 [Verse 1]
-Chicago and Northwestern Railroad came through town,
-Perry — built on iron and sound,
-Dallas County seat on the Iowa plains,
-Perry's got that railroad in its veins,
-Perry Park and Pool on a summer's heat,
-Perry — the rail tracks can't be beat.
+The Chicago and Northwestern Railroad came,
+Perry, Iowa, staking its claim,
+The Perry Railroad Museum tells the tale,
+Perry — a railroad's trail.
 
 [Pre-Chorus]
-Dallas County pride, railroad strong,
-Perry's been singing all along.
+Dallas County's railroad town,
+Perry — never backing down.
 
 [Chorus]
-Perry, Perry, railroad town proud,
-Dallas County singing loud,
-Perry, Perry, iron and soul,
-Perry — making us whole.
+Perry, Perry, tracks of time,
+Railroad heritage so sublime,
+The Raccoon River and the depot too,
+Perry — we believe in you!
 
 [Verse 2]
-Perry Perk downtown with the coffee steam,
-Historic uptown like a railroad dream,
-Dallas County Fair bringing joy to all,
-Perry High Bluejays standing tall,
-Boulevard Park under Iowa skies,
-Perry — one of a kind of ties.
+The Dallas County Fair in the summer heat,
+The Perry Public Library on the street,
+Downtown Perry on a Saturday morn,
+Perry — pride reborn.
 
 [Pre-Chorus]
-Dallas County pride, railroad strong,
-Perry's been singing all along.
+Dallas County's railroad town,
+Perry — never backing down.
 
 [Chorus]
-Perry, Perry, railroad town proud,
-Dallas County singing loud,
-Perry, Perry, iron and soul,
-Perry — making us whole.
+Perry, Perry, tracks of time,
+Railroad heritage so sublime,
+The Raccoon River and the depot too,
+Perry — we believe in you!
 
 [Bridge]
-Steel rails brought the settlers west,
-Perry was the stop that knew the rest,
-Railroad to community, that's the Perry way,
-Dallas County — every day.
+The railroad whistle echoed through the years,
+Perry conquered its fears,
+From the tracks to a broader view,
+Perry — shining new.
 
 [Final Chorus]
-Perry, Perry, railroad town proud,
-Dallas County singing loud,
-Perry, Perry, one more cheer,
-Perry — we're right here!
+Perry, Perry, standing strong,
+Railroad heritage all along,
+Dallas County's pride so bright,
+Perry — burning light!
 
 [Outro]
-Perry — railroad proud, always Dallas County.
+Perry, Iowa, railroad soul,
+A small town making itself whole,
+The whistle blows and the future's near,
+Perry — always here!
 
 ---
 

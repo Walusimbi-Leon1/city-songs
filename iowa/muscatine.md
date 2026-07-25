@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Indie Folk
-**Mood:** Pearl of the River, Charming, Timeless
-**Suno Tags:** [Style of Music: indie folk, pearl of the river, charming, timeless, acoustic guitar, soft harmonies, Iowa Mississippi River pride]
+**Genre:** Acoustic Indie
+**Mood:** River City Charm, Warm, Authentic
+**Suno Tags:** [Style of Music: Acoustic indie, gentle picking, warm vocals, river-city charm]
 
 [Intro tag]
-Muscatine — the Pearl of the Mississippi!
+Muscatine — pearl of the Mississippi!
 
 [Verse 1]
-Mississippi River bending at our shore,
-Muscatine's been a pearl forevermore,
-Pearl Button Museum telling the gleam,
-Historic downtown like a river dream,
-The Weed Park and Aquatic Center so bright,
-Muscatine — burning like a light.
+The Mississippi's western shore we call our home,
+Muscatine, we've never had to roam,
+The Pearl Button capital of the world we'd be,
+A city of heritage so free.
 
 [Pre-Chorus]
-Pearl of the Mississippi, that's our name,
-Muscatine's got a claim to fame.
+Muscatine County's shining star,
+Muscatine — we've come so far.
 
 [Chorus]
-Muscatine, Muscatine, Pearl of the river,
-Mississippi's treasure, standing forever,
-Muscatine, Muscatine, shining so bright,
-Pearl of the Mississippi — what a sight.
+Muscatine, Muscatine, pearl of the shore,
+Mississippi River — we love you more,
+The Pearl Button Museum shining bright,
+Muscatine — beneath the fading light!
 
 [Verse 2]
-Quincy and Musser Parks where the families play,
-Muscatine Art Center brightening the day,
-Harrison Street with its shops and charm,
-Crystal Lake Park keeping us warm,
-Stanbery Park and the bluffs up high,
-Muscatine — beneath the Iowa sky.
+The Muscatine Art Center in a grand estate,
+The Riverside Park at the water's gate,
+The Mississippi Queen watching from above,
+Muscatine — built on love.
 
 [Pre-Chorus]
-Pearl of the Mississippi, that's our name,
-Muscatine's got a claim to fame.
+Muscatine County's shining star,
+Muscatine — we've come so far.
 
 [Chorus]
-Muscatine, Muscatine, Pearl of the river,
-Mississippi's treasure, standing forever,
-Muscatine, Muscatine, shining so bright,
-Pearl of the Mississippi — what a sight.
+Muscatine, Muscatine, pearl of the shore,
+Mississippi River — we love you more,
+The Pearl Button Museum shining bright,
+Muscatine — beneath the fading light!
 
 [Bridge]
-Pearl buttons made here, world knew our name,
-Muscatine — never quite the same,
-But always better, always more,
-Pearl of the river, that's for sure.
+Buttons made from mussel shells for decades long,
+Muscatine kept on singing its song,
+From pearl buttons to a broader view,
+Muscatine — we're proud of you.
 
 [Final Chorus]
-Muscatine, Muscatine, Pearl of the river,
-Mississippi's treasure, standing forever,
-Muscatine, Muscatine, proud to the core,
-Pearl of the river — forevermore!
+Muscatine, Muscatine, standing free,
+On the riverbank beneath the tree,
+Pearl of the Mississippi's flow,
+Muscatine — glowing!
 
 [Outro]
-Muscatine — pearl of the Mississippi, timeless.
+Muscatine, Iowa, pearl of the West,
+Riverside city, passing every test,
+Mussel buttons and a heart of gold,
+Muscatine — a story to be told!
 
 ---
 

@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Gospel
-**Mood:** Railroad Heritage, Warm, Community
-**Snoo Tags:** [Style of Music: country gospel, railroad heritage, warm, community, acoustic guitar, choir harmonies, Iowa Union County pride]
+**Genre:** Classic Country
+**Mood:** Historic, Railroad-Proud, Heartland
+**Suno Tags:** [Style of Music: Classic country, storytelling, railroad heritage, heartland pride]
 
 [Intro tag]
-Creston — the crossroads of the railroad!
+Creston — where the railroad brought the town to life!
 
 [Verse 1]
-Union County seat where the rails converge,
-Creston's railroad heritage — every nerve,
-B公立 school pride, Creston Bluejays flying high,
-Lake Icaria under the Iowa sky,
-The historic depot standing proud and tall,
-Creston — the crossroads, answering the call.
+The railroad junction made this city's name,
+Creston, Iowa, staking its claim,
+The Union County Fair coming every year,
+Creston — held so dear.
 
 [Pre-Chorus]
-Railroad crossroads, Union County strong,
-Creston's been here all along.
+Union County's capital shining clear,
+Creston — we hold you near.
 
 [Chorus]
 Creston, Creston, railroad town,
-Union County's pride in every crown,
-Creston, Creston, standing tall,
-Creston's answered every call.
+The finest city around,
+The Midwest Old Threshers reunion too,
+Creston — we believe in you!
 
 [Verse 2]
-Southwestern Community College on the hill,
-Creston's got that community thrill,
-Flickinger Park on a winter's snow,
-Main Street shops with a friendly glow,
-Creston Municipal Band on a summer night,
-Creston — burning ever bright.
+The Southwestern Community College calls,
+The Creston Public Library standing tall,
+McKinley Park on a summer's day,
+Creston — the Iowa way.
 
 [Pre-Chorus]
-Railroad crossroads, Union County strong,
-Creston's been here all along.
+Union County's capital shining clear,
+Creston — we hold you near.
 
 [Chorus]
 Creston, Creston, railroad town,
-Union County's pride in every crown,
-Creston, Creston, standing tall,
-Creston's answered every call.
+The finest city around,
+The Midwest Old Threshers reunion too,
+Creston — we believe in you!
 
 [Bridge]
-Where the Burlington and Rock Island met,
-Creston's been the railroad's best bet,
-Crossroads of Iowa, that's our fame,
-Creston — remember the name.
+The railroad brought the settlers in,
+Creston, Iowa, where to begin,
+A hub of tracks and a heart of gold,
+Creston — a story to be told.
 
 [Final Chorus]
-Creston, Creston, railroad town,
-Union County's pride in every crown,
-Creston, Creston, loud and clear,
-Creston — we're right here!
+Creston, Creston, standing strong,
+Proud to carry on along,
+Union County's pride and soul,
+Creston — forever whole!
 
 [Outro]
-Creston — railroad crossroads, always.
+Creston, Iowa, tracks and heart,
+Union County, set apart,
+Railroad town with a farmer's soul,
+Creston — making history whole!
 
 ---
 

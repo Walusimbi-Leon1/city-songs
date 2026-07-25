@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country Pop
+**Genre:** Fun Country-Pop
 **Mood:** Sweet, Proud, Festive
-**Snoo Tags:** [Style of Music: country pop, sweet, proud, festive, upbeat acoustic, cheerful vocals, Iowa Ice Cream Capital pride]
+**Suno Tags:** [Style of Music: Fun country-pop, playful melody, ice cream celebration, joyful chorus]
 
 [Intro tag]
 Le Mars — the Ice Cream Capital of the World!
 
 [Verse 1]
-Blue Bunny ice cream made right here in town,
-Le Mars — the sweetest place around,
-Plymouth County seat with a dairy dream,
-Le Mars — nothing's what it seems,
-Wells Enterprises building scoop by scoop,
-Le Mars — at the top of the group.
+Blue Bunny ice cream in every scoop,
+Le Mars, Iowa, at the top of the loop,
+The Wells Enterprises factory running strong,
+Le Mars — where we all belong.
 
 [Pre-Chorus]
-Dairy capital, sweet and true,
-Le Mars — we belong to you.
+Plymouth County's proudest town,
+Le Mars — ice cream all around!
 
 [Chorus]
-Le Mars, Le Mars, Ice Cream Capital bright,
-Plymouth County's sweet delight,
-Le Mars, Le Mars, scooping up pride,
-Le Mars — with joy inside.
+Le Mars, Le Mars, ice cream town,
+The sweetest city around,
+Blue Bunny churning day and night,
+Le Mars — what a sight!
 
 [Verse 2]
-Le Mars Municipal Pool on a sunny day,
-Floyd Valley Hospital saving lives the local way,
-Le Mars Arts Center with a show,
-Gehlen Catholic School putting on a glow,
-Le Mars Speedway racing through the night,
-Le Mars — everything's just right.
+The Wells Dairy Heritage Center gleaming bright,
+The Plymouth County Courthouse standing tight,
+Floyd Boulevard on a summer's day,
+Le Mars — the sweetest way.
 
 [Pre-Chorus]
-Dairy capital, sweet and true,
-Le Mars — we belong to you.
+Plymouth County's proudest town,
+Le Mars — ice cream all around!
 
 [Chorus]
-Le Mars, Le Mars, Ice Cream Capital bright,
-Plymouth County's sweet delight,
-Le Mars, Le Mars, scooping up pride,
-Le Mars — with joy inside.
+Le Mars, Le Mars, ice cream town,
+The sweetest city around,
+Blue Bunny churning day and night,
+Le Mars — what a sight!
 
 [Bridge]
-Blue Bunny's home, the world knows it well,
-Le Mars — too sweet to tell,
-Scoop by scoop and town by town,
-Le Mars wears the sweetest crown.
+From the creamery past to the future's door,
+Le Mars keeps on wanting more,
+A sweet small city with a dairy soul,
+Le Mars — more than ice cream, more than whole.
 
 [Final Chorus]
-Le Mars, Le Mars, Ice Cream Capital bright,
-Plymouth County's sweet delight,
-Le Mars, Le Mars, raise a spoon high,
-Le Mars — the sweetest pie!
+Le Mars, Le Mars, sweet and free,
+Ice cream capital of the land and sea,
+Plymouth County's pride and joy,
+Le Mars — no alloy!
 
 [Outro]
-Le Mars — ice cream capital, forever sweet.
+Le Mars, Iowa, scoops and smiles,
+Blue Bunny ice cream for miles,
+The sweetest town you'll ever find,
+Le Mars — one of a kind!
 
 ---
 

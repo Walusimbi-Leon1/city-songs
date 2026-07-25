@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Folk/Country
-**Mood:** Heritage-Proud, Community, Warm
-**Snoo Tags:** [Style of Music: folk country, heritage-proud, community, warm, acoustic guitar, storytelling vocals, Iowa Washington County pride]
+**Genre:** Patriotic Pop-Country
+**Mood:** Patriotic, Proud, Historic
+**Suno Tags:** [Style of Music: Patriotic pop-country, bold chorus, patriotic spirit, historic pride]
 
 [Intro tag]
-Washington — the birthplace of the first Iowa school!
+Washington, Iowa — a city named for a president!
 
 [Verse 1]
-Washington County seat with a patriotic name,
-Washington — Iowa's heritage claim,
-Washington County Fair — one of the best around,
-Community spirit is our crown,
+Named for the father of our nation's fame,
+Washington, Iowa, staking its claim,
 The Washington County Courthouse standing tall,
 Washington — answering the call.
 
 [Pre-Chorus]
-Washington County pride, warm and true,
-Washington — we belong to you.
+Washington County's capital so bright,
+Washington — a patriotic light.
 
 [Chorus]
-Washington, Washington, proud and bright,
-Washington County shining tonight,
-Washington, Washington, heritage town,
-Washington — never backing down.
+Washington, Washington, Iowa's pride,
+A city where our history resides,
+The Washington County Fair on a summer's day,
+Washington — the Iowa way!
 
 [Verse 2]
-Kalona just a drive away,
-Washington's got its own display,
-Washington Public Library on a quiet street,
-Community spirit can't be beat,
-Washington Park where the families meet,
-Washington — Iowa's heartbeat.
+The Washington Public Library gleams,
+The Lincoln Park on the river streams,
+East Side Park beneath the summer sun,
+Washington — we're having fun.
 
 [Pre-Chorus]
-Washington County pride, warm and true,
-Washington — we belong to you.
+Washington County's capital so bright,
+Washington — a patriotic light.
 
 [Chorus]
-Washington, Washington, proud and bright,
-Washington County shining tonight,
-Washington, Washington, heritage town,
-Washington — never backing down.
+Washington, Washington, Iowa's pride,
+A city where our history resides,
+The Washington County Fair on a summer's day,
+Washington — the Iowa way!
 
 [Bridge]
-Named for the father of our nation's story,
-Washington carries Iowa's glory,
-County seat and a county fair,
-Washington — everywhere.
+Named for a president, built with heart,
+Washington played a pioneering part,
+From the prairie past to the modern age,
+Washington — turning every page.
 
 [Final Chorus]
-Washington, Washington, proud and bright,
-Washington County shining tonight,
-Washington, Washington, one more time,
-Washington — doing fine!
+Washington, Washington, standing strong,
+Proud to carry on along,
+Washington County's finest light,
+Washington — burning bright!
 
 [Outro]
-Washington — heritage proud, always patriotic.
+Washington, Iowa, presidential pride,
+A city standing side by side,
+Washington County's beating heart,
+Washington — set apart!
 
 ---
 

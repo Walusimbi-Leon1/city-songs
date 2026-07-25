@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Pop/Pop-Rock
-**Mood:** Vibrant, Modern, Aspirational
-**Suno Tags:** [Style of Music: pop pop-rock, vibrant, modern, aspirational, bright vocals, upbeat tempo, Iowa suburb pride]
+**Genre:** Modern Pop
+**Mood:** Vibrant, Growing, Upbeat
+**Suno Tags:** [Style of Music: Modern pop, polished production, energetic beat, uplifting melody]
 
 [Intro tag]
 West Des Moines — where the west side shines!
 
 [Verse 1]
-Jordan Creek Parkway stretching wide and free,
-Valley West Mall where the families spree,
-Historic Valley Junction on a Friday night,
-Antique shops and restaurants burning bright,
-Raccoon River trails for a morning run,
-West Des Moines — we're just getting started, we've just begun.
+Jordan Creek's waters flowing through the night,
+Valley West Mall is shining bright,
+A city growing faster than we dreamed,
+West Des Moines, nothing's ever what it seemed.
 
 [Pre-Chorus]
-Suburban dreams with a capital view,
-West Des Moines is breaking through.
+We started small but we reached the sky,
+West Des Moines — we'll never say goodbye.
 
 [Chorus]
-West Des Moines, West Des Moines, shining on the west,
-Growing every day, passing every test,
-West Des Moines, West Des Moines, future's looking bright,
-West side pride burning through the night.
+West Des Moines, growing strong,
+Every day we prove we belong,
+From the trails to the neighborhoods new,
+West Des Moines — we believe in you!
 
 [Verse 2]
-Clive Aquatic Center making summer splash,
-Pat Villeret Park in a green flash,
-Walnut Creek Campus building tomorrow's stars,
-80/35 music festival guitar,
-The Bridge District rising from the ground,
-West Des Moines — listen to that sound.
+The Raccoon River Park on a summer day,
+Cattleman's Steakhouse, come and stay,
+Clive Greenbelt Trail beneath the trees,
+West Des Moines, riding on the breeze.
 
 [Pre-Chorus]
-Suburban dreams with a capital view,
-West Des Moines is breaking through.
+We started small but we reached the sky,
+West Des Moines — we'll never say goodbye.
 
 [Chorus]
-West Des Moines, West Des Moines, shining on the west,
-Growing every day, passing every test,
-West Des Moines, West Des Moines, future's looking bright,
-West side pride burning through the night.
+West Des Moines, growing strong,
+Every day we prove we belong,
+From the trails to the neighborhoods new,
+West Des Moines — we believe in you!
 
 [Bridge]
-From farmland roots to a booming town,
-Progress and community all around,
-Polk County's jewel with a vision clear,
-West Des Moines — we're glad you're here.
+From farm fields to a modern scene,
+The best of both worlds in between,
+West Des Moines, we're just getting started,
+A community with hearts united.
 
 [Final Chorus]
-West Des Moines, West Des Moines, shining on the west,
-Growing every day, passing every test,
-West Des Moines, West Des Moines, loud and strong,
-This west side pride will carry on!
+West Des Moines, standing tall,
+Proud to answer every call,
+Growing fast but staying true,
+West Des Moines — forever new!
 
 [Outro]
-West Des Moines — modern, thriving, proud.
+West Des Moines, shining west,
+The city that's become the best,
+Prairie roots and modern ways,
+West Des Moines — blaze of praise!
 
 ---
 

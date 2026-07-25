@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Rock/Heartland Rock
-**Mood:** Proud, Comeback Spirit, Determined
-**Suno Tags:** [Style of Music: rock heartland rock, proud, comeback spirit, determined, electric guitar, driving beat, Iowa manufacturing pride]
+**Genre:** Inspirational Pop-Rock
+**Mood:** Resilient, Hopeful, Community-Strong
+**Suno Tags:** [Style of Music: Inspirational pop-rock, anthemic build, hopeful chorus, resilient energy]
 
 [Intro tag]
-Newton — the Jewel of Jasper County!
+Newton — the city that never stops believing!
 
 [Verse 1]
-Maytag once made the world spin here,
-Newton's been tough year after year,
-Jasper County's pride, standing tall,
-Baxter Creek trail along the wall,
-Newton Sculpture Park in the morning dew,
-Newton — we've got a future to pursue.
+Maytag's legacy is in our bones,
+Newton stands though the wind may moan,
+The Iowa Speedway roaring with the sound,
+Newton — standing on solid ground.
 
 [Pre-Chorus]
-Maytag gone but the spirit stayed,
-Newton's never been afraid.
+Jasper County's heart and soul,
+Newton — making history whole.
 
 [Chorus]
-Newton, Newton, Jewel of the county,
-Jasper County pride in every fount and bounty,
-Newton, Newton, come and see,
-Newton's where we want to be.
+Newton, Newton, standing strong,
+Rebuilding is what we do all along,
+The Maytag legacy never dies,
+Newton — reaching for the skies!
 
 [Verse 2]
-Iowa Speedway roaring on the north side,
-Voorhies Place — where the history resides,
-Newton Rockfest shaking up the square,
-Maytag Park — we're still here,
-Newton Community YMCA on a winter's day,
-Newton — finding a brand new way.
+The Newton Public Library shining new,
+Berg Middle School on the avenue,
+The Jasper County Courthouse standing proud,
+Newton — we're singing clear and loud.
 
 [Pre-Chorus]
-Maytag gone but the spirit stayed,
-Newton's never been afraid.
+Jasper County's heart and soul,
+Newton — making history whole.
 
 [Chorus]
-Newton, Newton, Jewel of the county,
-Jasper County pride in every fount and bounty,
-Newton, Newton, come and see,
-Newton's where we want to be.
+Newton, Newton, standing strong,
+Rebuilding is what we do all along,
+The Maytag legacy never dies,
+Newton — reaching for the skies!
 
 [Bridge]
-One-armed bandit town, washing machine kings,
-Newton's got reinvention in its strings,
-From the factory floor to a racing town,
-Newton — never backing down.
+Maytag built this town with pride,
+Newton carries it deep inside,
+When the factory closed, we didn't break,
+Newton — for goodness' sake!
 
 [Final Chorus]
-Newton, Newton, Jewel of the county,
-Jasper County pride in every fount and bounty,
-Newton, Newton, stand up proud,
-Newton — say it loud!
+Newton, Newton, never down,
+Wearing the resilience like a crown,
+Jasper County's finest light,
+Newton — burning bright!
 
 [Outro]
-Newton — comeback proud, forever the jewel.
+Newton, Iowa, Maytag town,
+Never letting us down,
+Iowa Speedway and a heart so true,
+Newton — we believe in you!
 
 ---
 

@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Folk/Acoustic Pop
-**Mood:** Charming, Warm, Community-Spirited
-**Suno Tags:** [Style of Music: folk acoustic pop, charming, warm, community-spirited, gentle guitar, harmony vocals, Iowa small city pride]
+**Genre:** Classic Country
+**Mood:** Warm, Hometown, Neighborly
+**Suno Tags:** [Style of Music: Classic country, warm fiddle, storytelling lyrics, hometown pride]
 
 [Intro tag]
-Marion — the gateway to the Amana Colonies!
+Marion — where the Uptown district comes alive!
 
 [Verse 1]
-Linn County's gem just north of CR,
-Marion's got a charm you can't transfer,
-Taube Park where the summer concerts play,
-Indian Creek nature trail on a perfect day,
-Uptown Marion buzzing with local pride,
-Historic architecture on every side.
+Linn County's gem along the Cedar stream,
+Marion, Iowa living out the dream,
+The Uptown District with its artsy feel,
+Marion's charm is something real.
 
 [Pre-Chorus]
-Gateway to the Amana way,
-Marion brightens every day.
+Just minutes north of Cedar Rapids' beat,
+Marion is a home so sweet.
 
 [Chorus]
-Marion, Marion, heart of Linn County,
-Charming as it's meant to be,
-Marion, Marion, warm and true,
-Marion's got a place for you.
+Marion, Marion, town of grace,
+The pride of Linn County on full display,
+Tower Terrace Park beneath the trees,
+Marion — we live with ease!
 
 [Verse 2]
-Granger House Museum keeping history alive,
-Lions Park where the families thrive,
-Marion's farmers market on a Saturday morn,
-Community spirit newly born,
-NewBo just south, but Marion's our own,
-Small-city magic beautifully shown.
+The Marion Heritage Museum tells it all,
+Brick streets and storefronts standing tall,
+Ladd Library where the children read,
+Marion, planting every seed.
 
 [Pre-Chorus]
-Gateway to the Amana way,
-Marion brightens every day.
+Just minutes north of Cedar Rapids' beat,
+Marion is a home so sweet.
 
 [Chorus]
-Marion, Marion, heart of Linn County,
-Charming as it's meant to be,
-Marion, Marion, warm and true,
-Marion's got a place for you.
+Marion, Marion, town of grace,
+The pride of Linn County on full display,
+Tower Terrace Park beneath the trees,
+Marion — we live with ease!
 
 [Bridge]
-Railroad heritage, pioneer pride,
-Marion's standing strong by your side,
-From small-town roots to a growing pace,
-Marion's finding its rightful place.
+A small city with a family feel,
+Where neighbors greet you with a meal,
+From harvest festivals to winter snow,
+Marion puts on quite a show.
 
 [Final Chorus]
-Marion, Marion, heart of Linn County,
-Charming as it's meant to be,
-Marion, Marion, one more song,
-Marion — where we belong!
+Marion, Marion, standing strong,
+Singing out our hometown song,
+Linn County's finest, shining free,
+Marion — where we want to be!
 
 [Outro]
-Marion — gateway proud, always charming.
+Marion, Iowa, Uptown proud,
+A small city singing loud,
+Linn County's heart, east side's crown,
+Marion — never backing down!
 
 ---
 

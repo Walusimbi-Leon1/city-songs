@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Folk
-**Mood:** Small-Town Warm, Heritage-Proud, Resilient
-**Snoo Tags:** [Style of Music: country folk, small-town warm, heritage-proud, resilient, acoustic guitar, fiddle, Iowa Floyd County pride]
+**Genre:** Heartland Country
+**Mood:** Proud, Musical, Agricultural
+**Suno Tags:** [Style of Music: Heartland country, twangy guitars, agricultural pride, musical heritage]
 
 [Intro tag]
-Charles City — where the Cedar River sings!
+Charles City — Floyd County's capital and the birthplace of the tractor!
 
 [Verse 1]
-Floyd County seat where the river bends,
-Charles City's got that small-town friend,
-The Charles Theatre lighting up Main Street's glow,
-Oaks Amusement Park putting on a show,
-Arbor Hill Trail winding through the trees,
-Charles City — carried on the breeze.
+Where the Cedar River bends and flows,
+Charles City, Iowa, everybody knows,
+The birthplace of the Hart-Parr tractor fame,
+Charles City — a proud old name.
 
 [Pre-Chorus]
-Small-town Iowa, Cedar River town,
-Charles City's always been around.
+Floyd County's capital so grand,
+Charles City — Iowa's land.
 
 [Chorus]
-Charles City, Charles City, Cedar River song,
-Floyd County pride all day long,
-Charles City, Charles City, warm and true,
-Charles City — we belong to you.
+Charles City, Charles City, tractor town,
+Where the farm equipment's rolling down,
+The Cedar River and the courthouse too,
+Charles City — we believe in you!
 
 [Verse 2]
-Veterans Memorial Park where the flags fly high,
-Charles City — Iowa's small-town sky,
-Central Park Pool on a July day,
-Heritage Farm Museum the local way,
-George Wyth's birthplace — wrestling's might,
-Charles City burning ever bright.
+The Charles City Public Library shines,
+The Carbide on the Corner grand designs,
+Oleson Park on a summer's day,
+Charles City — the Iowa way.
 
 [Pre-Chorus]
-Small-town Iowa, Cedar River town,
-Charles City's always been around.
+Floyd County's capital so grand,
+Charles City — Iowa's land.
 
 [Chorus]
-Charles City, Charles City, Cedar River song,
-Floyd County pride all day long,
-Charles City, Charles City, warm and true,
-Charles City — we belong to you.
+Charles City, Charles City, tractor town,
+Where the farm equipment's rolling down,
+The Cedar River and the courthouse too,
+Charles City — we believe in you!
 
 [Bridge]
-Riverside beauty, neighbor's grace,
-Charles City — a treasured place,
-Small enough to know every name,
-Charles City — heart of the game.
+Hart-Parr made the first tractor here,
+Charles City, year by year,
+Agricultural heritage running deep,
+Charles City — a promise to keep.
 
 [Final Chorus]
-Charles City, Charles City, Cedar River song,
-Floyd County pride all day long,
-Charles City, Charles City, raise it high,
-Charles City under the Iowa sky!
+Charles City, Charles City, standing proud,
+Singing clear and singing loud,
+Floyd County's heart and soul,
+Charles City — forever whole!
 
 [Outro]
-Charles City — small-town proud, forever warm.
+Charles City, Iowa, tractor town strong,
+Where the first tractor rolled along,
+Cedar River flowing, heritage gleaming,
+Charles City — always dreaming!
 
 ---
 

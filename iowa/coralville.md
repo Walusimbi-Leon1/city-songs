@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Pop/Indie Pop
-**Mood:** Vibrant, Family-Friendly, Growing
-**Suno Tags:** [Style of Music: pop indie pop, vibrant, family-friendly, growing, bright vocals, ukulele, Iowa Iowa City neighbor pride]
+**Genre:** Indie Pop
+**Mood:** Vibrant, Cultural, Growing
+**Suno Tags:** [Style of Music: Indie pop, jangly guitars, upbeat rhythm, vibrant energy]
 
 [Intro tag]
-Coralville — the Iowa River's vibrant neighbor!
+Coralville — Coralville Reservoir's hometown!
 
 [Verse 1]
-Iowa River running through our town,
-Coralville Lake shining crystal down,
-Coral Ridge Mall where the shoppers roam,
-Heritage Museum keeping history home,
-1/2 Market Pavilion on a Saturday morn,
-Coralville — where new traditions are born.
+Just west of Iowa City, a city grows,
+Coralville, where the river flows,
+The Coralville Reservoir glimmering blue,
+Coralville — a fresh point of view.
 
 [Pre-Chorus]
-Just outside Iowa City's frame,
-Coralville plays its own game.
+Johnson County's neighbor shining bright,
+Coralville beneath the city light.
 
 [Chorus]
-Coralville, Coralville, Iowa River bright,
-Growing every year with all our might,
-Coralville, Coralville, vibrant and true,
-Coralville's got a home for you.
+Coralville, Coralville, city of coral,
+Where every neighbor is someone you'll recall,
+The Iowa River Landing shining free,
+Coralville — come and see!
 
 [Verse 2]
-TJ Maxx and the shops along the strip,
-Meadowland Park for the family trip,
-North Liberty nearby, but Coral's our town,
-Coralville Performing ArtsCenter going down,
-270 West Park where the kids all play,
-Coralville — shining every day.
+The Coralville Public Library's a beacon of light,
+The Amana Colonies a short drive right,
+S.T. Morrison Park beneath the trees,
+Coralville — doing as we please.
 
 [Pre-Chorus]
-Just outside Iowa City's frame,
-Coralville plays its own game.
+Johnson County's neighbor shining bright,
+Coralville beneath the city light.
 
 [Chorus]
-Coralville, Coralville, Iowa River bright,
-Growing every year with all our might,
-Coralville, Coralville, vibrant and true,
-Coralville's got a home for you.
+Coralville, Coralville, city of coral,
+Where every neighbor is someone you'll recall,
+The Iowa River Landing shining free,
+Coralville — come and see!
 
 [Bridge]
-From a small Iowa River village to a booming city,
-Coralville keeps growing — never looking pretty — looking great,
-Coralline fossils found beneath our feet,
-Coralville's heartbeat can't be beat.
+Named for the coral rock beneath the ground,
+A geological treasure found,
+From prairie roots to modern dreams,
+Coralville — so it seems.
 
 [Final Chorus]
-Coralville, Coralville, Iowa River bright,
-Growing every year with all our might,
-Coralville, Coralville, proud as the day,
-Coralville, Iowa — hip hooray!
+Coralville, Coralville, growing strong,
+A city where we all belong,
+Iowa River Landing at our core,
+Coralville — forevermore!
 
 [Outro]
-Coralville — vibrant, growing, forever bright.
+Coralville, Iowa, coral and stone,
+A city uniquely our own,
+Johnson County's rising star,
+Coralville — near and far!
 
 ---
 

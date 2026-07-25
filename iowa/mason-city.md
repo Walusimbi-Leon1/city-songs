@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Big Band/Jazz Pop
-**Mood:** Nostalgic, Elegant, Spirited
-**Suno Tags:** [Style of Music: big band jazz pop, nostalgic, elegant, spirited, brass section, swing rhythm, Iowa Music Man pride]
+**Genre:** Classic Big Band / Swing Revival
+**Mood:** Nostalgic, Musical, Proud
+**Suno Tags:** [Style of Music: Big band swing revival, brass section, jazzy piano, nostalgic energy]
 
 [Intro tag]
-Mason City — the hometown of the Music Man!
+Mason City — birthplace of Meredith Willson's Music Man!
 
 [Verse 1]
-Meredith Willson wrote about this town,
-The Music Man put Mason City down,
-Central Park bandshell where the melodies play,
-North Iowa's big band capital today,
-Surf Ballroom where the legends sang,
-Buddy Holly's last note forever rang.
+On the banks of the Winnebago River's flow,
+Mason City stealing the show,
+The Music Man was born within these streets,
+A rhythm that the whole world meets.
 
 [Pre-Chorus]
-North Iowa's crown, music in the air,
-Mason City's beyond compare.
+Meredith Willson put us on the map,
+Mason City — time to clap!
 
 [Chorus]
-Mason City, Mason City, music in our soul,
-The Music Man made us whole,
-Mason City, Mason City, melodies so sweet,
-North Iowa's rhythm can't be beat.
+Mason City, Mason City, Music Man town,
+Where the band keeps playing the finest sound,
+The Surf Ballroom's rockin' night and day,
+Mason City — the music way!
 
 [Verse 2]
-Stockman House, Prairie Style so fine,
-Frank Lloyd Wright's design in every line,
-East Park where the trails wind through,
-Clear Lake just a mile or two,
-The Surf Ballroom rockin' once again,
-Mason City — music through and through.
+The Surf Ballroom where the legends play,
+Buddy Holly's last song on that fateful day,
+The Prairie Reunion at North Iowa's fair,
+Mason City — beyond compare.
 
 [Pre-Chorus]
-North Iowa's crown, music in the air,
-Mason City's beyond compare.
+Meredith Willson put us on the map,
+Mason City — time to clap!
 
 [Chorus]
-Mason City, Mason City, music in our soul,
-The Music Man made us whole,
-Mason City, Mason City, melodies so sweet,
-North Iowa's rhythm can't be beat.
+Mason City, Mason City, Music Man town,
+Where the band keeps playing the finest sound,
+The Surf Ballroom's rockin' night and day,
+Mason City — the music way!
 
 [Bridge]
-"Ya Got Trouble" — no, we got the beat,
-Shipoopi and the River City suite,
-From the Surf to the bandstand's gleam,
-Mason City's a musician's dream.
+"Seventy-Six Trombones" echoing down,
+Every corner of this town,
+The Music Man Square tells the tale,
+Mason City — without fail.
 
 [Final Chorus]
-Mason City, Mason City, music in our soul,
-The Music Man made us whole,
-Mason City, Mason City, one more time we sing,
-Mason City — let it ring!
+Mason City, Mason City, singing along,
+With Meredith Willson's famous song,
+North Iowa's gem, standing proud,
+Mason City — singing clear and loud!
 
 [Outro]
-Mason City — music forever, pride always.
+Mason City, Iowa, Music Man dreams,
+Nothing's ever quite what it seems,
+Seventy-six trombones lead the way,
+Mason City — every single day!
 
 ---
 

@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Dutch Folk/Pop
-**Mood:** Tulip-Filled, Festive, Charming
-**Snoo Tags:** [Style of Music: dutch folk pop, tulip-filled, festive, charming, accordion, upbeat tempo, Iowa Dutch heritage pride]
+**Genre:** Dutch-Inspired Folk-Pop
+**Mood:** Festive, Charming, European-Flavored
+**Suno Tags:** [Style of Music: Dutch-inspired folk-pop, accordion accents, festive feel, tulip festival energy]
 
 [Intro tag]
-Pella — the Dutch Treasure of Iowa!
+Pella — the tulip capital of Iowa!
 
 [Verse 1]
-Tulip Time Festival every May,
-Pella — in the Dutch-American way,
-Molengracht Plaza like a Netherlands dream,
-Vermeer Windmill grinding flour in the stream,
-Klokkenspiel chiming every hour,
-Pella — our Dutch treasure, our flower.
+Tulip Time every May, the flowers bloom,
+Pella, Iowa, chasing the gloom,
+Dutch heritage in every street and stone,
+Pella — a world of its own.
 
 [Pre-Chorus]
-Mahaska County's Dutch delight,
-Pella — shining ever bright.
+Marion County's jewel so bright,
+Pella — a European delight.
 
 [Chorus]
-Pella, Pella, Dutch Treasure town,
-Tulips and windmills all around,
-Pella, Pella, festive and free,
-Pella — a荷兰 dream.
+Pella, Pella, tulip town,
+Dutch heritage never slowing down,
+The Vermeer Windmill turning in the breeze,
+Pella — dancing with ease!
 
 [Verse 2]
-Sunken Gardens blooming spring to fall,
-Pella Opera House entertaining all,
-Northwest Iowa, no — south-central Pella way,
-Pella High Dutchmen every day,
-Lake Red Rock just a short drive west,
-Pella — Iowa's very best.
+The Pella Opera House on the square,
+Molengracht Plaza with its European flair,
+Central College students fill the town,
+Pella — never letting us down.
 
 [Pre-Chorus]
-Mahaska County's Dutch delight,
-Pella — shining ever bright.
+Marion County's jewel so bright,
+Pella — a European delight.
 
 [Chorus]
-Pella, Pella, Dutch Treasure town,
-Tulips and windmills all around,
-Pella, Pella, festive and free,
-Pella — a Netherlands dream.
+Pella, Pella, tulip town,
+Dutch heritage never slowing down,
+The Vermeer Windmill turning in the breeze,
+Pella — dancing with ease!
 
 [Bridge]
-Hendrik Peter Kuyper brought the Dutch here,
-Pella's heritage crystal clear,
-Tulip gardens, klompen shoes,
-Pella — choose, always choose.
+Holland's descendants crossed the sea,
+To build a town of liberty,
+The wooden shoes, the klompen dancers twirl,
+Pella — in a Dutch-inspired whirl.
 
 [Final Chorus]
-Pella, Pella, Dutch Treasure town,
-Tulips and windmills all around,
-Pella, Pella, one more time we sing,
-Pella — Dutch Treasure, everything!
+Pella, Pella, standing proud,
+Tulip beauty singing loud,
+Dutch heritage and Central College too,
+Pella — we believe in you!
 
 [Outro]
-Pella — Dutch proud, forever tulip-ful.
+Pella, Iowa, tulips and windmills tall,
+The most Dutch city of them all,
+Marion County's pride and joy,
+Pella — without alloy!
 
 ---
 

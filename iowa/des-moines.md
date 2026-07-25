@@ -3,64 +3,62 @@
 
 ---
 
-**Genre:** Pop/Rock Anthem
-**Mood:** Uplifting, Proud, Energetic
-**Suno Tags:** [Style of Music: anthemic pop rock, upbeat, motivational, soaring vocals, stadium energy, Iowa heartland pride]
+**Genre:** Upbeat Pop-Anthem
+**Mood:** Triumphant, Proud, Energetic
+**Suno Tags:** [Style of Music: Upbeat pop anthem, big chorus, synth pads, driving beat, inspirational]
 
 [Intro tag]
-Capital city — Des Moines, Iowa — let's go!
+Des Moines — capital of dreams, heart of the heartland!
 
 [Verse 1]
 Where the Des Moines and Raccoon rivers meet,
-A capital city rising with heartbeat and heat,
-The golden dome gleaming on a Sunday morning light,
-East Village buzzing through the Iowa night,
-Pappajohn Sculpture Park under open sky,
-We're building something bigger, reaching up so high.
+A city rising with a golden heartbeat,
+The Capitol dome shines against the blue,
+Every street's alive with something new.
 
 [Pre-Chorus]
-From the court square to the skywalk scene,
-This is more than a place — it's a living dream.
+From the East Village lights to the skywalks wide,
+We're building something special, side by side.
 
 [Chorus]
-Des Moines, Des Moines, heart of the Hawkeye state,
-We carry the pride and we carry the weight,
-Des Moines, Des Moines, nothing can slow us down,
-Capital strong in this Iowa town.
+Des Moines, Des Moines, capital of the heart,
+Where the farmers' market starts a brand new part,
+We're the city that the world is gonna know,
+Des Moines forever, let your spirit grow!
 
 [Verse 2]
-State Fair flavors on a warm August day,
-Butter cow and blue ribbon, memories that stay,
-Drake Bulldogs charging, Cyclones roar from Ames,
-The principal financial skyline bears our names,
-80/35 music in the summer air,
-Community and culture everywhere.
+Prairie Meadows thunder, the State Fair glows,
+Theater downtown puts on quite the shows,
+Pappajohn Sculpture Park beneath the sky,
+Des Moines, we were born to reach up high.
 
 [Pre-Chorus]
-From the court square to the skywalk scene,
-This is more than a place — it's a living dream.
+From the East Village lights to the skywalks wide,
+We're building something special, side by side.
 
 [Chorus]
-Des Moines, Des Moines, heart of the Hawkeye state,
-We carry the pride and we carry the weight,
-Des Moines, Des Moines, nothing can slow us down,
-Capital strong in this Iowa town.
+Des Moines, Des Moines, capital of the heart,
+Where the farmers' market starts a brand new part,
+We're the city that the world is gonna know,
+Des Moines forever, let your spirit grow!
 
 [Bridge]
-They said the heartland's quiet, said we'd never shine,
-But look at us now — we're leading the line,
-Insurance, agriculture, innovation too,
-Des Moines is the future and the future is you.
+Iowa's golden fields stretch far and wide,
+But this city's pulse beats deep inside,
+Bridges, trails, and neighborhoods that sing,
+Every neighbor lifts us on the wing.
 
 [Final Chorus]
-Des Moines, Des Moines, heart of the Hawkeye state,
-We carry the pride and we carry the weight,
-Des Moines, Des Moines, standing tall and proud,
-Saying it loud — this is our crowd!
+Des Moines, Des Moines, shining like a star,
+We've come so far, we've gone so far,
+Capital city with a capital pride,
+Des Moines forever — standing side by side!
 
 [Outro]
-Des Moines — capital proud, forever now,
-Des Moines — capital proud, take a bow.
+Capital of Iowa, capital of dreams,
+Des Moines — nothing's ever what it seems,
+Keep shining bright beneath the prairie sky,
+Des Moines, Des Moines — we'll never say goodbye!
 
 ---
 

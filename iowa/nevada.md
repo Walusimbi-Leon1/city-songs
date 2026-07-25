@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Community
-**Mood:** Story County Seat, Growing, Proud
-**Snoo Tags:** [Style of Music: country community, story county seat, growing, proud, acoustic guitar, cheerful vocals, Iowa Story County pride]
+**Genre:** Country Pop
+**Mood:** Small-Town Charming, Proud, Agricultural
+**Suno Tags:** [Style of Music: Country pop, catchy melody, small-town charm, agricultural pride]
 
 [Intro tag]
-Nevada — Story County's county seat!
+Nevada — Story County's seat and proud of it!
 
 [Verse 1]
-Story County seat just east of Ames,
-Nevada — where the community remains,
-Nevada Municipal Pool on a summer day,
-Central Park in the Iowa way,
-Story County Museum telling the history,
-Nevada — that's our mystery.
+Not the desert — we're Iowa's own,
+Nevada, where the heart has grown,
+The Story County Fairgrounds filled with cheer,
+Nevada — always here.
 
 [Pre-Chorus]
-Story County pride, growing strong,
-Nevada — singing this song.
+Story County's capital so bright,
+Nevada — burning light.
 
 [Chorus]
-Nevada, Nevada, Story County strong,
-Growing every year, all day long,
-Nevada, Nevada, proud and true,
-Nevada — we belong to you.
+Nevada, Nevada, not the state,
+But Iowa's pride is never late,
+The Central Iowa Fair and the courthouse too,
+Nevada — we believe in you!
 
 [Verse 2]
-Nevada High Cubs on a Friday night,
-Downtown shops in the morning light,
-Story County Fair answering the call,
-Nevada — giving its all,
-Iowa State just down the road,
-Nevada — carrying the Story County code.
+The Nevada Public Library shines new,
+Ballard Park beneath the blue,
+A small city on a country road,
+Nevada — a wonderful load.
 
 [Pre-Chorus]
-Story County pride, growing strong,
-Nevada — singing this song.
+Story County's capital so bright,
+Nevada — burning light.
 
 [Chorus]
-Nevada, Nevada, Story County strong,
-Growing every year, all day long,
-Nevada, Nevada, proud and true,
-Nevada — we belong to you.
+Nevada, Nevada, not the state,
+But Iowa's pride is never late,
+The Central Iowa Fair and the courthouse too,
+Nevada — we believe in you!
 
 [Bridge]
-County seat with a college neighbor,
-Nevada — growing in labor,
-Story County's heart, small but bright,
-Nevada — Iowa's light.
+Don't confuse us with the desert west,
+Nevada, Iowa is the best,
+Story County seat with a prairie view,
+Nevada — we believe in you.
 
 [Final Chorus]
-Nevada, Nevada, Story County strong,
-Growing every year, all day long,
-Nevada, Nevada, loud and proud,
-Nevada — singing out loud!
+Nevada, Nevada, standing proud,
+Sing it clear and sing it loud,
+Story County's capital song,
+Nevada — carrying on!
 
 [Outro]
-Nevada — Story County proud, always growing.
+Nevada, Iowa, not the desert heat,
+But heartland pride can't be beat,
+Story County's finest crown,
+Nevada — never backing down!
 
 ---
 

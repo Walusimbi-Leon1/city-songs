@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Country/Roots Rock
-**Mood:** Hardworking, Resilient, Authentic
-**Suno Tags:** [Style of Music: country roots rock, hardworking, resilient, authentic, twangy guitar, steady drums, Iowa working-class pride]
+**Genre:** Heartland Folk
+**Mood:** Resilient, Proud, Working-Class
+**Suno Tags:** [Style of Music: Heartland folk, acoustic guitar, warm fiddle, resilient spirit]
 
 [Intro tag]
-Marshalltown — Marshall County's hardworking heart!
+Marshalltown — stronger together!
 
 [Verse 1]
-Where the Iowa River bends and rolls,
-Marshalltown's been building with its souls,
-Lennox International making the air right,
-Fisher controls keeping the future bright,
-Veterans Memorial Coliseum standing tall,
-Marshalltown gives its all, gives its all.
+The Iowa River flowing through our town,
+Marshalltown with working people all around,
+The Lenihan Auditorium lights up the night,
+A community that gets it right.
 
 [Pre-Chorus]
-Working-class pride, Marshall County strong,
-Marshalltown's been singing this song.
+Tama County's finest, standing tall,
+Marshalltown answers every call.
 
 [Chorus]
-Marshalltown, Marshalltown, hard to the bone,
-This Iowa city stands alone,
-Marshalltown, Marshalltown, resilient and real,
-Heartland grit with the honest deal.
+Marshalltown, Marshalltown, standing strong,
+A city where we all belong,
+Marshall County fairgrounds filled with cheer,
+Marshalltown — we hold you dear!
 
 [Verse 2]
-Fisher Farm Park where the kids all play,
-Historic downtown on a summer day,
-Marshalltown Community College paving the way,
-Downtown murals brightening the gray,
-Tama just east, but Marshall's our town,
-Roll up your sleeves — let's break it down.
+The Fisher Community Center's where we meet,
+The historic square along the street,
+The Marshalltown Public Library calling our name,
+Marshalltown is our claim to fame.
 
 [Pre-Chorus]
-Working-class pride, Marshall County strong,
-Marshalltown's been singing this song.
+Tama County's finest, standing tall,
+Marshalltown answers every call.
 
 [Chorus]
-Marshalltown, Marshalltown, hard to the bone,
-This Iowa city stands alone,
-Marshalltown, Marshalltown, resilient and real,
-Heartland grit with the honest deal.
+Marshalltown, Marshalltown, standing strong,
+A city where we all belong,
+Marshall County fairgrounds filled with cheer,
+Marshalltown — we hold you dear!
 
 [Bridge]
-Tragedy struck and the town held tight,
-Marshalltown came back with all its might,
-Diverse and strong, every face, every name,
-Marshalltown — this is our game.
+Diverse and determined, that's who we are,
+From the factories to the community bar,
+Marshalltown, with a heart of gold,
+A story that will still be told.
 
 [Final Chorus]
-Marshalltown, Marshalltown, hard to the bone,
-This Iowa city stands alone,
-Marshalltown, Marshalltown, proud to the end,
-Marshalltown — my friend!
+Marshalltown, Marshalltown, pride on display,
+We're rising higher every day,
+Iowa River running true and clear,
+Marshalltown — we're glad you're here!
 
 [Outro]
-Marshalltown — working proud, unbreakable spirit.
+Marshalltown, Iowa, proud and free,
+A city of possibility,
+Tama County's heart, Marshall's own,
+Marshalltown — standing on its own!
 
 ---
 

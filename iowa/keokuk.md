@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Blues/Soul
-**Mood:** River Heritage, Historic, Musical
-**Snoo Tags:** [Style of Music: blues soul, river heritage, historic, musical, harmonica and piano, deep vocals, Iowa Mississippi River pride]
+**Genre:** Bluesy Folk
+**Mood:** River City Soul, Historical, Proud
+**Suno Tags:** [Style of Music: Bluesy folk, fingerpicked guitar, river city soul, historical pride]
 
 [Intro tag]
-Keokuk — where three rivers become one!
+Keokuk — where three rivers meet and history flows!
 
 [Verse 1]
-Lee County seat at the tri-river confluence,
-Keokuk — where the waters make their reference,
-Mississippi, Des Moines, and the Cedar too,
-Keokuk — river city through and through,
-Keokuk Dam powering the night,
-Keokuk — river city burning bright.
+At the confluence where the rivers blend,
+Keokuk, Iowa — the rivers' friend,
+Lock and Dam Number 19 holding strong,
+Keokuk — carrying on.
 
 [Pre-Chorus]
-Lee County pride, river's might,
-Keokuk — standing in the light.
+Lee County's southernmost town,
+Keokuk — never backing down.
 
 [Chorus]
-Keokuk, Keokuk, river city strong,
-Three rivers flowing all day long,
-Keokuk, Keokuk, proud and true,
-Keokuk — we belong to you.
+Keokuk, Keokuk, rivers converge,
+A river town that's lived and surged,
+The Grand Theatre on a Friday night,
+Keokuk — a dazzling light!
 
 [Verse 2]
-Keokuk National Cemetery honoring the brave,
-George Washington Park on the river's wave,
-Keokuk Opera House history's stage,
-Lee County Fair turning history's page,
-Randall Park on a summer's gleam,
-Keokuk — living the dream.
+George Washington High School on the hill,
+Riverview Park with a view so thrill,
+The Keokuk Dam thundering below,
+Keokuk — putting on a show.
 
 [Pre-Chorus]
-Lee County pride, river's might,
-Keokuk — standing in the light.
+Lee County's southernmost town,
+Keokuk — never backing down.
 
 [Chorus]
-Keokuk, Keokuk, river city strong,
-Three rivers flowing all day long,
-Keokuk, Keokuk, proud and true,
-Keokuk — we belong to you.
+Keokuk, Keokuk, rivers converge,
+A river town that's lived and surged,
+The Grand Theatre on a Friday night,
+Keokuk — a dazzling light!
 
 [Bridge]
 Named for the great Sauk chief of old,
-Keokuk's story has been told,
-Tri-river city, history's pride,
-Keokuk — on the riverside.
+Keokuk, brave and bold,
+Three rivers — Mississippi, Des Moines, and the Fox,
+Keokuk — unlocking every box.
 
 [Final Chorus]
-Keokuk, Keokuk, river city strong,
-Three rivers flowing all day long,
-Keokuk, Keokuk, loud and proud,
-Keokuk — singing out loud!
+Keokuk, Keokuk, standing free,
+Three-river city's legacy,
+Lee County's gem along the shore,
+Keokuk — forevermore!
 
 [Outro]
-Keokuk — tri-river proud, always Lee County.
+Keokuk, Iowa, rivers three,
+Where they meet is where we'll be,
+Lock and Dam, a powerhouse too,
+Keokuk — we believe in you!
 
 ---
 

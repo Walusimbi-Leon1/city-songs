@@ -3,63 +3,62 @@
 
 ---
 
-**Genre:** Blues/Gospel Rock
-**Mood:** Bold, Historic, Triumphant
-**Suno Tags:** [Style of Music: blues gospel rock, bold, historic, triumphant, powerful organ and guitar, soulful vocals, Iowa western gate pride]
+**Genre:** Americana / Country
+**Mood:** Historical, Proud, Stalwart
+**Suno Tags:** [Style of Music: Americana country, acoustic warmth, storytelling, heartland pride]
 
 [Intro tag]
-Council Bluffs — Iowa's Gateway to the West!
+Council Bluffs — gateway to the West!
 
 [Verse 1]
-Missouri River roaring at our feet,
-Council Bluffs — western gate, can't be beat,
-Transcontinental Railroad starting from this ground,
-Historic Hanover College where the scholars found,
-Pottawattomie Park under prairie sky,
-Gateway to the west — hear us cry.
+On the Missouri's eastern shore we stand,
+Gateway to the West, a pioneer's land,
+General Dodge and the Union Pacific dream,
+Council Bluffs — more than it may seem.
 
 [Pre-Chorus]
-Pottawattamie County, bold and free,
-Council Bluffs is history.
+From Kanesville to the railroad age,
+Council Bluffs writes history's page.
 
 [Chorus]
-Council Bluffs, Council Bluffs, Gateway West,
-Missouri River, give us your best,
-Council Bluffs, Council Bluffs, pioneer soul,
-We're the gate that opened the whole.
+Council Bluffs, Council Bluffs,
+Where the railroad story starts and starts,
+On the bluffs above the Missouri's flow,
+Council Bluffs — we'll always grow!
 
 [Verse 2]
-The Union Pacific Railroad Museum telling the tale,
-Bayliss Park on a summer trail,
-Casino Wharf lighting up the night,
-Western Hills Trail cutting through the light,
-Fairmont Park and the Iowa Skydome,
-Council Bluffs — you're always home.
+The Historic General Dodge House stands so grand,
+Bayliss Park in this western land,
+Aksarben Arena thundering tonight,
+Council Bluffs — burning ever bright.
 
 [Pre-Chorus]
-Pottawattamie County, bold and free,
-Council Bluffs is history.
+From Kanesville to the railroad age,
+Council Bluffs writes history's page.
 
 [Chorus]
-Council Bluffs, Council Bluffs, Gateway West,
-Missouri River, give us your best,
-Council Bluffs, Council Bluffs, pioneer soul,
-We're the gate that opened the whole.
+Council Bluffs, Council Bluffs,
+Where the railroad story starts and starts,
+On the bluffs above the Missouri's flow,
+Council Bluffs — we'll always grow!
 
 [Bridge]
-Lewis and Clark camped upon this bluff,
-Council Bluffs has always been enough,
-Gateway to the west, door to the plain,
-Council Bluffs — again, again, again.
+Lewis and Clark camped upon this ground,
+The Transcontinental Railroad was found,
+A century and a half of western pride,
+Council Bluffs, with the whole world beside.
 
 [Final Chorus]
-Council Bluffs, Council Bluffs, Gateway West,
-Missouri River, give us your best,
-Council Bluffs, Council Bluffs, proud and true,
-Gateway to the west — through and through!
+Council Bluffs, proud and true,
+The heartland's gateway, tried and true,
+Bluff City standing strong and bold,
+Council Bluffs — worth its weight in gold!
 
 [Outro]
-Council Bluffs — gateway proud, forever pioneering.
+Gateway to the West we'll always be,
+Council Bluffs — from river to the free,
+Prairie city with a pioneer soul,
+Council Bluffs — making history whole!
 
 ---
 
